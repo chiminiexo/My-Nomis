@@ -1,1181 +1,1009 @@
-f“He’s looking at you again.”
+He had his legs spread out wide enough to know it irked his parents, but not quite enough to look sloppy or uncivilized. As he chewed the pork and legumes in his mouth, an unsavory taste ran down the back of his throat, his teeth catching on the sheer toughness of the bite, the edge of it all disagreeing with his usually forgiving palate.
 
-Jimin sighs when he hears Hoseok whisper in his ear again.
+“Has our food always been so...revolting?” Jungkook asked, fighting back the urge to spit it back out. If none of them were going to say it, then he would.
 
-“He looks at you every single time they come over.”
+His mother and father acted out not listening, his father finishing his evening paper and his mother asking him to pass the salt. They rarely paid him any attention. He shifted his gaze to the left. His older brother stared at him quietly from across the table, never one to bother getting involved. Jungkook had always found him too proper. So proper it bordered on appearing lily-livered.
 
-“Can you stop?” Jimin hisses more than whispers. “You know they have great hearing and I don’t want them to hear your nonsense.”
+“Well? Are we rationing for war?” He pressed, dropping his fork down on the plate. He wouldn’t eat any more if it was inedible. They had money, so why would they settle for less than the best? It was like silver meant nothing these days. Like their names were not worth properly cooked meat.
 
-Hoseok pouts but doesn’t do so for long, his lips turning up into a smile after he looks at their guests. Jimin suppresses the disgusted grunt that threatens to slip past his lips, and picks up the last crane of melons to carry them to their guests. Minding the rock on the ground – which Jimin will have to put away later – he reminds himself to neither to show any fear like he did in the past, nor the distaste that he’s feeling right now. He hands over the crane to a wolf without looking at him properly, and almost groans when he realises it’s the alpha Hoseok had been talking about, wishing he had gone to the other side.
+“I think the servant’s boy has started helping out in the kitchen,” his mother mused quietly, chewing on a brussel sprout. Her face was screwed up in concentration, as if trying to remember something, making her wrinkles deepen like a craped piece of fabric. “The lanky, little one. Could have sworn I remember the thing being swaddled in secret only yesterday.”
 
-Jimin has met the alpha a quite a few times and knows by now that his name is Jungkook and that he’s one of the candidates for becoming the next head alpha of his pack. One of the reasons for that is that Jungkook is somewhat of a war hero. When a skirmish broke out between Jungkook’s pack and another one five years ago, the other pack attacked Jimin’s village. Around ten humans died that day and many more were hurt.
+She sounded like she did not care much to one end or another. Jungkook scoffed. The quality of their service and household was falling apart, and he was the only one looking out for it. Soon they’d let horses come around and run the kitchens, never mind some snotty-nosed child.
 
-Since the human villages exist, they have also become a target for enemy packs. Though usually most of the head alphas are too noble to attack human villages, not all of them care for nobility. Jimin’s village became a target and Jungkook was one of the alphas dispatched to them. That was the same time Jimin made a name for himself alongside Jungkook.
+“Darling, the boy’s about the same age as our Jungkook, if not a little older. Surely, you’ve seen him walking around, helping with chores,” his father said. And then, they were lost in their meaningless conversations again, paying no mind to the real issue at hand. Jungkook curled his upper lip up in disgust, pushing the plate away from himself.
 
-Pushing the memories aside, Jimin takes the last steps towards Jungkook. With dismay, Jimin notes how the crane full of melons looks so much lighter in the alpha’s hands as he puts it in the back of the pick-up truck. As if it isn’t enough that he’s so much broader and taller than Jimin, he also has to be stronger.
+“He looks just like his mother and walks like a ghost; he barely lets himself be known,” his mother countered with, but was now busying herself with the floral decoration on the table, straightening it out. “Goodness, I got these just yesterday. And to think, he would sell me violet ones.”
 
-Jimin is strong. He has made sure that he is, and the only reason he volunteered to be one of the traders with the wolves is, to show them he can meet them head-on despite being a human. That sadly doesn’t change how the wolves naturally are stronger than him.
+His mother and father, the honorable Lady and Lord Jeon, left the table once they were satisfied, retreating to the tea room to retire for the night. Namjoon, his older brother, spared him a glance from across the room, before he, too, disappeared from sight, no doubt to retire to the library.
 
-Too preoccupied with grumbling on the inside, Jimin forgets about the rock on the ground and trips over it. He only has a second to curse himself for being stupid enough to trip in front of the wolves. The ground is gradually coming closer to his face, when it suddenly stops a meter before it. Heart pounding in his chest, Jimin needs a moment to notice that he’s not falling anymore, a pair of arms wound around his torso. He turns his head slowly, fear creeping in alongside embarrassment.
+Jungkook stood by the dining table, musing at it. He ran a finger over the silk tablecloth, tracing it then over the unused silverware and over a wine spill from his mother. He grimaced down at his refused plate of food, glancing back towards the door to the kitchens. Surely, what his parents did not know would not concern them. But it was something he would irk himself over to no end for days, spoiling his mood rotten. And what then? They would grow even more wiry with him. And he would grow wirier with them, yet. And then he would have to hear from Namjoon something about being callous and the cause of it, despite being the only one in the house looking out for their interests and honour.
 
-“You okay?” Jungkook asks him. Something deep inside Jimin stirs.
+He pursed his lips, picking up his plate of food. He could feel the unpalatable texture just by looking at it, and gripped it tighter in his hold. How he was watching the grace of their house fall by pure negligence. The disrespect so blatant and loud his parents had to be void of all wit to dismiss it.
 
-Jimin has to bite his lower lip to stop himself from gasping indignantly. Okay? Okaaay???? He is not okay at all. As if tripping in front of the wolves isn’t bad enough, he had to land in the arms of one right in front of all the villagers present at the exchange. Hoseok is also still here, and he won’t let him hear the end of this.
+Jungkook turned on his heel, carrying the plate with him as he made a stride towards the kitchens, one hand gripping the edge of his fitted vest. The floorboard creaked under him, his shoes loud and demanding where he walked. He turned through the small backside corridor, unable to remember the last time he’d walked in those quarters. When he was a child. Or perhaps, not even then. He’d never liked the smell of lard and scrubbed dirt wafting from there. He didn’t think it necessary to ever involve himself in matters beneath him.
 
-Scrambling to his feet, Jimin ignores the burning in his cheeks and cleared his throat. “Thank you,” he says through gritted teeth and marches off awkwardly. He rolls his eyes when he sees Hoseok gaping at him, a grin already forming on his face.
+He stepped into a short, ajar door, seeing pots and pans and fire stacked together amongst hanging poultry and messes on the floor for him in the kitchen, in all its foul-smelling glory. In the corner, peeling apples, was hunched a small boy, deeply concentrated with his task. Despite the apron he wore, which was clearly two sizes too big for him, he had managed to dirty up the sleeves of his shirt and even the dark material of his trousers.
 
-Jimin neither acknowledges Hoseok for the remainder of the time the wolves are readying themselves to drive off, nor does he look back at the alpha. It isn’t until he hears the pick-up truck drive away that Jimin dares to take a peek. He instantly regrets it when he is met with the smiling face of the alpha.
+Jungkook cleared his throat, making the boy jump. When the servant turned around and saw him, he seemed beside himself, dropping the apple and his knife with an almost practiced, comical gasp.
 
-
+“Y-young Master,” the boy greeted him with, wiping his hands on his trousers with haste before dropping to his hands and knees in a deep bow, floor barely creaking under him. His long hair dangled in front of his eyes, and he seemed to chance a look or two up at Jungkook, shuffling where he’d kneeled. He looked vaguely familiar, like Jungkook had actually seen him around his estate before. As a part of the furniture, perhaps. Easy to overlook. Easy to forget. The wide, glass eyes that were overlooking him, however, did not seem so forgettable.
 
-The first memory Jimin has of his life is about his mother telling him about the wolves in the woods. As a three-year-old child, Jimin had been intently listening to his mother, reading every word from her lips. He remembers being captivated by the stories; captivated and scared. Despite that, he had wanted to hear more, had begged his mother every night to tell him even more stories. So his mother did.
+“You’re staring,” Jungkook chastised, holding the boy’s gaze firmly. The boy looked away quickly, seeming unsure of what to do with his hands, and now, also his eyes.
 
-“There are wolves in the woods,” his mother began, “We don’t know how they came to be but they’ve been here since the beginning. Though they look like us, like humans, they can turn into wolves whenever they please. They are our ancestors and we live by their mercy.”
+“Sorry,” the boy murmured. He seemed to straighten up a little, gaze fluttering from Jungkook, to the plate, and then back to his apples. They fixated on Jungkook again, as if waiting for instruction.
 
-“What’s an ancestor?” Jimin remembers asking.
+“You’re still staring,” Jungkook remarked, annoyed with the lack of clear direction and the fiddling about. “Have you never seen a man before?”
 
-“They are family members who lived before us. Some of their children were human, and we come from those humans.”
+The boy seemed to fight with himself to figure out whether that was supposed to be a rhetorical question or not. Jungkook wondered if that would be giving the thing too much credit. Servants were stupid, after all. Couldn’t read, couldn’t write, and always smelled like they couldn’t clean themselves, either.
 
-“If they are family, can I turn into a wolf too?” Jimin had asked excitedly.
+“I’ve seen men, Sir,” the boy said, unsure. He was stuck in limbo between getting up and staying low as a sign of respect. Of holding his cloth still or using it to finish his work. Of talking and remaining quiet.
 
-Jimin still remembers the sad smile his mother had given, and the way she brushed back his hair with a shaking hand. “No. We lost our second nature that allows wolves to turn. That’s it for tonight. It’s late.”
+“I’m sure you have,” Jungkook answered him mockingly.
 
-Jimin had whined and begged for more stories but his mother didn’t tell them for a while afterwards.
+He threw the metal plate he was still holding down onto the old, wooden kitchen table, some of the food splattering off with the impact. The boy would have to clean that later. It made the servant flinch.
 
-Unlike back then, Jimin now knows the rules, that’s why he knows he’s screwed right now.
+“What’s this?” he asked, gesturing to the plate with his head. The servant boy definitely looked lost now, his big eyes darting between the plate and Jungkook’s eyes.
 
- 
+“Your dinner, Sir?” he tried, straightening up, as if a little more confident. The cheek of him.
 
-Jimin was doing nothing new. Like he does weekly, Jimin went into the woods, entering the designated area the wolves allowed the humans to hunt on – the rest belonging to them – and wanted to hunt a deer. It has been four days now since the wolves had visited and he couldn’t get the alpha and his smile out of his head, which annoyed him. When he had gotten a request from the butcher to hunt a deer, if not a deer then at least a boar, he had happily accepted, thinking a hunt would take his mind off of the alpha. This is all he had intended to do.
+“Really?” Jungkook questioned. He huffed, grabbing some of the gooey slob in his left hand and staring at it for a quick moment. The servant boy looked scandalized, rising up on his feet as if ready to help clean his Master off with the cloth he had over his arm. “Then why does it taste like excrement?” Jungkook growled, fixing his eyes menacingly down at the servant boy, who seemed to be shaking.
 
-He doesn’t know when he went too far. He had only been following the deer, not wanting to lose him, especially after that missed shot where he hit the deer’s upper leg instead of his lungs. Jimin had lost it for a moment but then found her again after running for a while, following a trail of blood. Jimin is just like that. He always gets what his clients ask of him, nothing else. And maybe his pride could also not let him live down the fact that he missed the deer.
+“I-I don’t understand—“
 
-Shouldering the rifle, Jimin had taken a moment to calm down, panting too hard from the run. He remembers how his breathing had steadied, his heart no longer pounding as loudly. His finger had slowly moved to the trigger as the deer sunk its head to drink from the lake. He had pressed the trigger but instead of hitting the brown deer, he had hit something grey.
+“Son of a cook, but can’t absorb any of her skills? Remarkable,” Jungkook accused, holding his dirty hand up in the boy’s face. The boy stared at his hand so intently that his eyes crossed. Then, he just stood still, gaping like a goldfish. Jungkook had had enough of his flummoxing.
 
- 
+He reached behind the boy and fisted his dark hair, yanking his head back as if in a practiced move. As soon as the servant opened his mouth to gasp, he stuck two food-laden fingers into his mouth, catching his breath.
 
-Jimin was only five years old when his parents had screamed at him for walking too deeply into the woods. Though he had heard that the wolves were dangerous and he should fear them, it hadn’t really sunk in.
+“You must really not know how disgusting your food is,” he sneered, shoving the dinner in as he force-fed the scraps to the servant. The boy choked ever so slightly, reaching up a hand to hold onto the arm Jungkook was using to choke him for purchase. “Eat it yourself. I’m not eating a plate of sick.”
 
-He learned more about them in school, learned that they lived in packs, learned about alphas, betas and omegas, and that they have a clear hierarchy where the head alpha is the strongest among them. He learned how the first humans came to be, how they didn’t turn at their coming of age when they became twenty, how they were considered late bloomers at first and then abominations later. He learned how the first of them were killed as a punishment for whatever stopped them from turning.
+He pulled his fingers out of the servant’s wet mouth, the smaller boy breathing hard and flailing in front of him.
 
-The rising number of humans had caused a mass panic in the packs. Wolves were afraid of getting infected with whatever it was that stopped their peers from turning, were afraid that they would become a part of this divine punishment by allowing the “abominations” to exist.
+“I’m sorry, young Master. Forgive me,” the smaller boy managed to utter, bits of food still holding onto his spit-slick lips.
 
-The packs learned to distinguish those who will be able to turn and who won’t, and began killing them before they could even reach their coming of age, some as young as infants.
+“We can have you out in a second,” Jungkook lied, watching the boy’s glassy eyes with almost too much fixation. His brown orbs were swimming in wetness; whether from physical discomfort or humiliation, he wasn’t sure. Nor did he care. “Anyone could take your place. So you had better make yourself useful.”
 
-It’s not known how the executions of humans stopped in other packs but their village came to be after an omega fought her head alpha, when he had attempted to kill her pup, who was only five days old. At the end of the fight, she had lain bleeding on the ground but the head alpha neither killed the mother, nor the pup.
+The boy nodded eagerly, finally wiping his mouth. Jungkook didn’t know why, but he felt a desire to soil him again. Completely ruin his face with it.
 
-He had let them leave, had allowed her to live on a piece of land on their territory and then sent every human of their pack to her. That is how their village came to be.
+He refrained.
 
-By now, it is rare for humans to be born into wolf packs but the villages created out of the first outcasts are big enough to prosper without them.
-
-Despite knowing the gruesome past of his fellow human beings, Jimin was still surprised to see how cruel the wolves still could be.
-
-He was only eight years old when he finally understood what his mother meant when she said they as humans ‘live by their mercy.’ He doesn’t remember the details anymore, doesn’t know what the man was accused of, but some wolves had brought him to the market square and demanded the mayor meet them.
-
-It was the first time Jimin had seen a pack member. Two were in their human forms, one old but nothing like Jimin’s friendly grandfather or the old neighbour who always gave him warm pastry fresh from the oven. He looked sterner than their teacher when he was really mad. They were flanked by two giant wolves, looking menacing, their ears constantly twitching and snouts sniffing the air.
-
-It was then that Jimin understood why his parents always forced him to stay at home when the wolves came to trade with them, why they never allowed him to meet them. And it was then that Jimin had realised that all his boasting talk about not being afraid of the wolves was nothing but that: talk. He had been afraid, so much that his knees were shaking and he was hiding behind his mother’s skirt.
-
-The old wolf – Jimin later found out he was the head alpha – had demanded the death penalty for the man, had ignored the cries of plea of the man’s family members, and made them choose between hanging until death in the market place or being mauled by the wolves in his pack.
+“Don’t make me tell you again.”
 
  
 
-Jimin froze the moment he shot the grey thing and heard a loud thud, too scared to check what it is that he hit. There is a lake, Jimin notes belatedly. There is no lake on the human territory. The lake is on the wolves’ territory. Jimin blinks, taking in a shuddering breath. Tears sting his eyes, and he begins shaking uncontrollably.
+ 
 
-You need to look up, Jimin tells himself. You need to make sure he’s fine.
+*
 
-That thought feels like Jimin gets shot too. No, Jimin thinks, that was just another animal. It was no ‘he’ or ‘she’ but an animal. Despite these reassurances, Jimin needs a while to look up and check. He gasps when he sees the grey wolf – too big to be an ordinary wolf – and drops his rifle. His shaking worsens until he needs to lean against a nearby tree so he doesn’t fall to the ground.
+ 
 
-Jimin firmly keeps his eyes on the wolf, wishing, praying that he gets up, is only hurt and not dead. Wolves have superior healing powers than humans. There is no way a bullet can kill them. It isn’t until he sees the wolf make a weak attempt at getting up that Jimin moves too, his heart that seemed to have stopped beating suddenly beating too fast. He staggers to the body, falling once and crawling the rest of the way until he is by his side, and immediately wishes he hadn’t.
+ 
 
-There is too much blood, way too much blood. Jimin shot the wolf right in his ribcage, blood pouring from the wound, and it had pierced his lung. The wolf was wheezing, a wet sound that will haunt Jimin for life. There is blood on his snout too.
+The following days were drab and dry. His mother had got him another tutor, someone who would teach him poetry this time (—for romance’s sake, she claimed wistfully—) and gawk at him while he scribbled noncommittal stanzas in his own notebook with an irked bite of his lip.
 
-Jimin sobs when he looks at the wolf and sees him looking at right at him. He presses a hand to the wound in a desperate attempt to stop the bleeding. It’s too late, Jimin knows. There is no way his lung can heal from a gunshot wound but Jimin cannot help it.
+The man was balding, sagging skin hanging under his neck already and a bad knee. He was practically dead, let alone sufficient to inspire passionate and amorous phonaesthetics, sound, metre, and prosaic meaning. A waste of time and space.
 
-“I-I’m s-sorry,” Jimin whispers. “I’m s-so sorry.”
+“How is it coming along, Jungkook?” the man asked him, eyes looking hopeful and excited, despite Jungkook not replying to him since they’d started the lesson. Jungkook could smell his foul breath from his close proximity, tightening his fingers around his ink pen.
 
-The wolf just looks at him, a rattle in his lungs, spitting blood with every breath.
+A sound emerged to their left, and he looked up to spot a familiar face in the door. He saw his brother walk into the study, presumably to get out to the gardens. God, he always did what he wanted. Sure, he was plenty older, but their parents did not seem as intent to torture him as they did Jungkook. Him and his perfectly capable brain and artistic integrity. The floor bent under Namjoon—let him step his polished, booted feet wherever he wanted them—while Jungkook scraped at scraps for his honour, were it not promptly decimated by his parents first.
 
-“I didn- didn’t mean t-to,” Jimin continues, needing the wolf to understand.
+“Jungkook?” The tutor asked, pulling him out of his sordid reverie. “Did you finish?”
 
-The wolf’s breathing grows weak, which Jimin notices immediately as he is now pressing both hands to the wound. He sobs again, his apology cut off by it. It’s then that Jimin hears a noise and he turns his head in time to see three wolves bursting out from between the trees. His shaking and sobbing stop immediately, body paralysed by fear. The three wolves look at him, sitting next to the bleeding wolf. Jimin sees when they finally process what is happening, that their pack member is dying. One of them howls loudly, while two others turn into their human form and run towards Jimin.
+“Against your nape, my lips move
+slow as sheepfoot blades
+I breathe the night into your hair: rapine manifest
+Read my lips, my mind,
+tell me what the new day has found here in your unmade bed,
+beside this pale flesh of God in the sough of the wind,
+his horses long since climbed to Heaven.”
 
-Jimin needs to move. He needs to make space for the wolves so they can help the dying wolf and maybe save him somehow but he is still paralysed, rooted to the spot.
+The pause after that stanza was substantial, the man doing somewhat of a double take, the breath meaning to be exhaled hastily and audibly retracted.
 
-“What did you do?” one of the wolves growls into his face, pushing Jimin out of the way to press her own hands to the wound.
+“Goodness me, son,” the tutor huffed over his notebook, eyes grazing the words he had just read a second time. Jungkook could see a pearl of sweat build its way down the side of his temple. “Goodness,” he continued mindlessly, moving his pupils further down the page, down the other poems, his face growing more pale as he did so. Jungkook watched him shift in his seat, suppressing a grin. Passion was passion, no?
 
-Jimin can’t answer, too focused on his blood-drenched hands. He caused this. He killed someone. Not just anyone but a wolf. The world goes still, every colour getting dull and every sound growing distant.
+“I can write another,” Jungkook offered, pulling the pot of ink towards himself, an eager air about his previously listless demeanor as his pen tightened in his hold.
 
-A few years ago, the head alpha died and was replaced by another. Jimin had seen him when he came to the village to introduce, and he can still hear his mother – who had met the new head alpha on a few occasions for trade – talk about how nice he is. Over the years as Jimin traded with the pack, he came to agree with his mother: the new head alpha is nicer than the previous one, but Jimin doubts even he is nice enough to let the death of a wolf go unpunished – accident or not.
+“That’s alright,” the tutor assured him, pushing the notebook away from himself with a brittle smile. He swallowed a bout of saliva, hands reaching for his shirt to straighten it, most notably where it sat tight around his neck. “I better get going.”
 
-Jimin is shaken out of his stupor, sound and sight coming back. He turns his head into the direction he hears his name coming from and is met with a familiar face. Jungkook is looking at him wide eyes, concern visible in them. That is such a welcoming and comforting sight, that Jimin can’t help being crying again, body wracked with sobs. Jungkook wraps an arm around his shoulders, which takes Jimin by surprise. He hadn’t expected an arm around his shoulders but a hand around his throat.
+“Suit yourself,” Jungkook commented, leaning back in his chair. His father would hate him for finishing their lessons so early. Not to mention for spooking off another tutor. But alas, it was not his doing. He was but a poet in the rough, yearning for unfettered and absolute expression.
 
-That small moment of comfort from the “enemy” doesn’t last long, interrupted by an imperious presence.
+He heard rushing steps away from him in the distance, a door closing, and sat still with himself while holding his pen, gazing out the window to the gardens where he assumed his brother to be. It was a nice day. The weather was nice. But he would stay indoors, because he did not like it much. Nice weather came with sweat, smells, and bugs. It was unruly in an unsettling way; one he didn’t much care to admire. Some things he cared to admire more.
 
-“Is that him?”
+He flicked his gaze down to the pot of ink in front of him, dropping his pen next to it. It was stout with ink, dark as night and shining in its depths. He exhaled, leaning back in his chair.
 
-Jimin looks up, staring straight at the head alpha.
+Some things he cared to admire more.
 
-
+He leaned forward, using his fingers to push at the pot, scraping it loudly across the surface, until it tipped off the edge of the study desk. A loud clunk and a wet splatter sounded into the room, ink flying as far as his shoes, dotting them with little, black spots, masqueraded into their black, leather surface.
 
-Sighing for the umpteenth time, Jimin suppresses the urge to scratch his face. He was brought to the pack and, surprisingly enough without torture, questioned by the head alpha. Jimin explained the situation in front of the scrutinising and grievous faces as best as he could before he was brought into a nearby cabin and locked into a room. It’s surprising that no one is guarding him, but despite that Jimin isn’t stupid enough to try escape through the window.
+He got up, walking around the side of the desk, and saw the ink sprayed angry over the floorboard. He grinned to himself, turning backwards and leaving the study, ready to find himself some entertainment.
 
-He doesn’t know whether he could make them understand but he hopes that at least their mayor will be able to appease the wolves somehow. Though the wolves’ decision is final, they can’t make one without at least consulting the humans when it’s about them. Will the mayor be able to convince them? Jimin doubts it. The setting sun outside, making him more hopeless. It’ll be night soon, and Jimin doesn’t know if he’ll get to see the sun again.
+He found it in the form of the small servant boy, furiously polishing his mother’s most recent wood carving monstrosity. After searching almost long enough to lose his interest, he’d found him in his father’s study, most likely of as little use there as he was anywhere else.
 
-Wanting to rub his face with his hands, Jimin gasps when he’s suddenly met with the blood on them. He thrusts his hands down and hides them under his thighs. He hadn’t gotten a chance to wash the blood off yet, and he doesn’t see a bathroom anywhere in sight. Leaving the room to look for one isn’t an option either. He doesn’t want someone to walk in and see the room empty and then spread the word that he fled.
+“You,” he said pointedly, glaring down at the boy. Those wide eyes flew up at him, his hands flinching around the wooden figure. He was utmostly attentive, polishing job forgotten. “You ruined our floor.”
 
-He looks around the room. It’s small, some kind of store room where someone keeps things that he doesn’t need but also doesn’t want to part from. One corner of it is filled with art supplies though.
+“What?” the boy said, eyes gradually steeping with fear and horror.
 
-Jimin is in the middle of singing a song from his village in his head to keep his thoughts away from the blood on his hands and the dying wolf, when the door opens, and Jungkook steps inside. Jimin balls his hands into fists, and presses himself closer against the wall. A small part of him is relieved upon seeing that’s it Jungkook. Remembering the concern Jimin saw in his eyes when Jungkook found him in the woods, the same concern Jimin is seeing as Jungkook looks at him. It takes Jimin by surprise.
+“What?” Jungkook mimicked in a high tone, lifting his face up to glare down at him with turned lips. “I said you ruined our floor,” he repeated, knowing full well the boy wasn’t begging a repetition.
 
-Jungkook sets a large bowl, which Jimin sees only now, filled with water on the ground and motions for Jimin. “I thought you might want to wash the blood off.”
+He shuffled forward as if to grab the boy and yank him with, but the boy was already up, clutching the felt cloth he’d been using. Taken aback by the action, he hesitated for a second, before fisting his hand into the boy’s loose, cream shirt, pulling him after his stride as he made for the other study by the gardens.
 
-Jimin tenses up and looks at Jungkook with guarded eyes. Is this a trick?
+The servant followed obediently behind him, allowing himself to be pulled forth as they raced over the loud floor, stumbling at times, but catching himself. He heard a soft sound of anxiety at a particularly harsh tug, and finished their journey by almost throwing the servant into the room.
 
-“I got you something to change into,” Jungkook says, putting a shirt and pair of pants on the ground, a towel on top of it.
+The servant stumbled, looking around himself in the stuffy, bright room, then back at Jungkook, who walked in behind him, sour and a hand firmly on his hip. Jungkook pointed to the black splatters covering the floor, waiting for the servant’s protests.
 
-With bated breath, Jimin watches Jungkook for a while before he hesitantly crawls closer to the bowl. Jungkook holds the towel out to him and motions to Jimin’s face, “There’s some blood on your face too.”
+“You did that, so fix it,” he spat, observing the boy expectantly.
 
-Jimin reaches for the towel but stops when he sees the blood on his hands again, gulping audibly.
+To his surprise, the boy rushed down to the ink, wetting his cloth on his tongue before getting to work, wiping at the stained wood with vigour. He glared, suddenly feeling annoyed that the servant wasn’t questioning anything—wasn’t putting up a fight.
 
-“Let me,” Jungkook whispers, dipping one edge of the towel in the water and wiping Jimin’s face with it.
+“If I catch you ruining something in our house one more time, I’ll report it,” he hissed into the silent room, purposefully. He held his breath, telling himself to calm down. He would get it. His desired outcome. The servant boy stopped in his tracks, head turning back towards him.
 
-Jimin is surprised to find the towel to be warm. Jungkook had actually gotten warm water for him. Jimin doesn’t know how the heating system in the pack is but he’s sure no one else would have brought him water, let alone warm one.
+And there it was. Wide eyes, slightly trembling shoulders. Wetness pooling close enough to seem akin to the beginning of tears. Jungkook practically preened.
 
-Satisfied with his work, Jungkook puts the towel aside and reaches for Jimin’s hands. He dips one into the warm water and washes the blood off himself, doing the same with his other hand too. Jimin can’t bear to see the water turn pink and then, so he looks up at Jungkook instead, even if it’s embarrassing.
+“Just do as I say, and nothing will happen. You can make it up to me,” Jungkook insisted, walking up to the servant with slow steps, before reaching his crouched form and stepping on his cloth. “Your name,” he demanded.
 
-“Why are you doing this?” Jimin asks quietly, his heart fluttering when he notices how soft Jungkook’s touch is.
+“Jimin,” the servant boy said, quickly as if to avoid further punishment, but slow enough to betray his mind’s state of disarray.
 
-Jungkook should be devastated, crying like the other wolves whom Jimin can hear through the window, but instead here he is, gently wiping his own pack member’s blood from Jimin’s hands. Instead of mourning for his pack member, Jungkook is here comforting and taking care of Jimin.
+Jungkook felt his mouth tug up into a deceitfully placating smile. The servant boy looked up at him attentively, his entire being devoted to whatever words would spill from Jungkook next.
 
-Suddenly, Hoseok’s words pop up in Jimin’s head again. “He’s looking at you.”
+Now this was more thrilling than poetry.
 
-Jungkook lips curl up lightly, and the gentle look in his eyes as he looks up at Jimin for a second makes Jimin’s heart skip a beat.
+He grabbed a chair from the desk, dragging it over the floor so it creaked loudly into the room, before sitting on it, facing the boy on the floor. He could see wisps of struggle in the servant’s eyes as he struggled between this interaction and his obligation to fulfill his previously established orders.
 
-“Would you believe me if I said that I don’t like seeing you in distress?”
+“Master says clean it up, Jimin,” Jungkook grated with a low timbre, robbing his attention from being elsewhere, eyes trained intently on the boy’s small form.
 
-Jimin’s jaw drops. He wants to say something, he should say something, but forming a coherent sentence is too much.
+The servant looked up at him with impressionable eyes, arms wobbly as they moved to put his order into practice. Jungkook knew he was the lowest on the rank of authority in their home, being the youngest. But he’d be sure to show their servant that disobeying him would bring more pain and suffering than from anyone else in their family combined.
 
-“He looks at you every single time they come over.”
+Jimin bowed his back so low his nose was practically shoved into the floor, bringing his now ink-stained cloth towards himself to scrub desperate circles into the wooden panels. Jungkook watched in sadistic glee as the cloth served to muddy the mess further, his servant’s underequipped tools easily not the correct ones for the job.
 
-The atmosphere grows heavy, the air thick with tension.
+“That’s funny,” he drawled from his chair, his head leaned into his hand apathetically. “I thought I told you to clean.”
 
-For a second Jimin believes to see an intense glint in Jungkook’s eyes but then the alpha starts washing his hand again, and continues, “Your mayor is here. He’s trying to negotiate with the head alpha and the council.”
+When he got up this time, it almost seemed like the servant was anticipating the retribution, resigned to a slowing movement as he heard his Master walk closer with carefully averted eyes.
 
-“Was the deer found?”
+“Do you mock me?”
 
-Jungkook nods. “Found it and brought it back. Bullet wound to the leg just like you said, and found a blood trail into the human territory. Your story checks out.”
+The servant quickly shook his head, now meeting his eyes in utter petrification. They both knew he would never dream to do that. That’s what made it all the more thrilling when Jungkook stepped his booted foot onto the servant’s shoulder, shoving him into the inky mess on the floor, his already disgusting shirt soaking in the back liquid.
 
-Jimin should sigh in relief and try to calm his racing heart but Jungkook’s gloomy face does not allow that. He slips his hands out of the alpha’s grasp and clutches his hand in his own.
+Poetry.
 
-“That’s not enough, is it?”  he asks, preparing to hear the worst but still hoping that he won’t.
+ 
 
-Jungkook is silent for a moment, and then shakes his head.
+ 
 
-“Why?” Jimin asks, can’t help the frustration seeping into his voice.
+*
 
-“You killed a wolf, Jimin. On our territory. The punishment for any murder on our territory, on any wolf territory, is death.”
+ 
 
-“But it was an accident. He just suddenly jumped right in front of the deer. I never meant to shoot him.”
+ 
 
-“And we get that,” Jungkook assures but Jimin can still hear that tiny ‘but’ in his voice. “We get that you’re a human from our village and that you have different rules over there but you were on our territory and it’s different for us. Wolves need stricter rules, rules that say that any death on your hands means the death penalty, or everyone would just do whatever they please. He was a pack member, Jimin. I know you don’t get that but when a pack member gets killed, it’s like you were hit too, and you can’t stop unless he’s avenged, whether you liked that wolf or not.
+Jimin looked down at his soiled shirt in his hands, still able to see the marks of the ink even in the pale lighting of his cot. He was unsure of how to tell his parents about the incident—or at least about the ruined shirt, because he would need a new one. It would be insulting for him to walk around the estate looking raggedy and dirty. At least, more overtly so than was his original state.
 
-“On top of that, he was killed by a human, a weaker creature. If we let a human who killed a wolf go, it would look like a weakness and allow other humans to just barge in here and start shooting at us because they don’t fear us anymore. It has happened to too many packs already. So some of them are demanding the death penalty.”
+He listened to his parents soft breathing from beneath and beside him, hiding the shirt under his pillow. Surely, they would blame him. In a way, Jimin blamed himself, too. He’d been stupid enough to use a dry cloth to attempt to clean an ink spill. He’d just been concerned for his own skin and not the beauty of the century old wood paneled floor, and so he’d received apt punishment.
 
-“Some? What do the rest say?” Jimin croaks, swallowing hard as fresh tears start rolling down his cheeks. He hates how much sense Jungkook’s reasons make.
+He could still feel the imprint of the tough boot on his shoulder, his skin prickling as he thought back to the anger on his young Master’s face and how his entire time and attention had been directed only at him. Jimin was unsure how he, a mere servant, had managed to command so much of the young Master’s attention in only two days. It was a sign of his lacking skill, that was for sure. But before the young master had seen him in the kitchens, he had grown accustomed to just being ignored, his mother and father scolding him and wiping up his messes before their heads of house even noticed. It was almost like young Master Jungkook went looking for him, in a way that nobody else did.
 
-“Your mayor asked for a lighter punishment because of your contributions five years ago. That’s why some have agreed to… cutting off your hands instead of sentencing you to death. They’ll decide in the morning.”
+No, of course he didn’t. How stupid. How silly. The young Master had a multitude more important things to be occupying his time and mind than someone like Jimin. Jimin was invisible, hidden under the estate when he wasn’t working to sleep, and crawling on the floor to clean when he was up above. He was meant to not be seen or heard, meant to be a smudge in the backdrop of the estate’s tapestry and doing his work all but mum. Barely acknowledged, barely watched. Taught by his parents to do things the way they did them, and to not be a bother by way of sight or hearing.
 
-“Hands? Not one hand but both hands? If I don’t bleed out or die from an infection, then I will certainly starve to death.”
+He touched the shirt under his pillow as he lay his head there, trying to sleep. He breathed deeply, fiddling with the shirt and trying to keep his mind off the imprinted foot on his back, his head swimming with unnecessary, excessive thinking. It wasn’t his job to think. It was his job to do all the unsavory tasks in the estate and pretend he wasn’t there.
 
-Jungkook’s brows furrow and his eyes harden at Jimin’s words. Jimin finds it illogical but it’s almost as if the alpha is angry.
+But young Master Jungkook had pulled up a chair in that room and watched him. Had sat there until Jimin had cried from the inability to clean the ink from the floor. Master Jungkook with his slick hair, sharp jaw and demanding eyes.
 
-“Why not just one hand?” Jimin asks, thinking that’s the best he should hope for in these dire circumstances. He can still make a living with one hand. He’ll figure something out.
+He had seen him.
 
-Jimin is hoping Jungkook will help him, considering how understanding the wolf has been so far, but instead the frown on Jungkook’s face just deepens.
+ 
 
-“What…” Jungkook starts slowly, the glint Jimin had seen in his eyes earlier returning, “if I have a way of making you avoid punishment?”
+ 
 
-Jimin stares at Jungkook for a while, gaping, and then says, “How?”
+*
 
-“Pack members are spared from punishment in some rare cases. Considering your contributions from five years ago and the fact that this was an accident, you would be spared if you were a pack member.”
+ 
 
-“H-how is that even possible? I’m human.”
+ 
 
-Jungkook stares at Jimin, eyes wandering from Jimin’s face to his body and back up at his face. If Jimin didn’t know any better, he’d say that he almost looks hungry. Suddenly, Jimin is painfully aware of how big and buff the wolf in front of him is, and that he is an alpha. Jimin has seen first-hand how strong alphas are, why, at school, they were adamantly taught to be most careful around them. They are the strongest of a pack for a reason, and the alpha in front of Jimin is a war hero.
+Namjoon didn’t eat in silence, like he usually did. Though their dinner was drab and dull as always, this time Jungkook wasn’t complaining about something to their parents, which was odd. Their mother and father usually let him get away with it, too afraid of Jungkook’s fits to put up a fight. But today, Jungkook was decidedly quiet—calm, even. Satisfied?
 
-“Leave that to me,” Jungkook says, voice hoarse suddenly. It sends tingles down Jimin’s spine.
+“Poetry lessons treating you well, Jungkook?” Namjoon asked, observing the way Jungkook’s brows relaxed as he chewed on the tender meat. More tender now than usual. Funny how that was, after Jungkook’s outburst.
 
-Jungkook leaves, not only the room but the cabin altogether. Jimin frowns, looks out the window and then at the door again. He wonders if he should be worried but as long as Jungkook can make him keep his hands, he supposes he shouldn’t be. Instead, he turns to the clothes Jungkook left next to him and decides to change into them. He has barely put on the shirt, shirt and pants both too big on him, when Jungkook comes bursting into the room.
+Jungkook appeared almost insulted that he would ask, but feigned pleasantries nonetheless. Namjoon made no ruckus of it.
 
-Flinching, Jimin faces Jungkook with wides eyes. Jungkook is panting and looks impatient but he stops when his eyes land on Jimin, jaw falling open.
+“I’m having a ball,” Jungkook replied coolly, still respecting Namjoon’s authority enough to not look him in the eye as he said it.
 
-“Fuck,” he murmurs.
+Namjoon smiled fleetingly, turning his attention back to his food and taking a bite. The meat definitely was more tender these days. He could hear their parents quarreling lowly while he chewed, completely oblivious to their exchange.
 
-“What?” Jimin looks down on himself, wondering whether he wore the clothes inside out or if there’s anything else weird about it.
+“What’s your favourite Haywood stanza?” Namjoon pressed when Jungkook had gone back to enjoying his food, not dignifying him with looking up as he spoke.
 
-“Nothing.” Jungkook shakes his head and holds a phial out to Jimin. “Drink this.”
+This earned him a disdainful glare from his younger brother that he could feel on his forehead, hot to the touch.
 
-Hesitantly, Jimin takes the phial and stares at the dark blue contents. He shouldn’t drink it. He doesn’t even know what it is, but Jungkook promised a solution where he wouldn’t get punished. Moreover, if it weren’t for Jungkook, he might soon not have any hands to hold anything in. So, with a racing heart, Jimin unplugs the phial and drains the content. He waits with bated breath, relieved but also confused when nothing other than small tingle in Jimin’s gut happens.
+“I believe it goes:
+‘That is none of your concern,
+the willow tree sings, ‘fuck off’,
+into the night’.”
 
-“What now?” Jimin asks.
+Namjoon stopped eating, glancing up finally and looking to his parents, who missed the blatant disrespect he’d just received. Jungkook just smirked to himself, stealing his father’s wine cup for a quick sip.
 
-“Now I’m going to do something... bad,” Jungkook responds, taking a step towards Jimin.
+“Mother,” Namjoon demanded, feeling uneasy as his little brother’s antics, that usually got stopped in their tracks, went unchecked. “Jungkook’s having a mouth.”
 
-“What?”
+Their mother turned to Jungkook, unimpressed, while still folding her napkin a different way for the third time that evening.
 
-“You like me, don’t you?” Jungkook says with a tiny smirk, taking another step towards Jimin. Now he’s standing right in front of him.
+“Are you having a mouth at your brother, Jungkook?” She pushed, Namjoon knowing she mostly took her eldest son’s side in disputes, and was grateful for it. He just wished she had the spine to really teach that spoiled brat a lesson.
 
-Jimin licks his lip, his heartbeat increasing and something twisting in his gut. “W-what are you talking about?”
+“Most definitely not,” Jungkook countered with, already back to eating his dinner with much enjoyment. Namjoon’s blood simmered with irritation, because there was nothing his mother could say to counter that.
 
-Jungkook puts a hand on Jimin’s waist, making Jimin’s breath hitch. Jimin fans his face with one hand, suddenly feeling hot. He notes his breathing is coming out faster too.
+“Eat your food,” she just pressed to Jungkook, who was already doing exactly that.
 
-Ignoring Jimin’s questions, Jungkook continues in a sultry voice, “I, for one, like you a lot.”
+Namjoon didn’t miss the shit-eating grin his brother sent him from across the table, wondering when exactly things had gotten so out of hand. It would be too easy to blame it on their father’s drinking or their mothers lack of care.
 
-Jimin stares at Jungkook wide-eyed, the confession too sudden.
+He wasn’t blind to the smell of burnt embers swept under their best rugs.
 
-“Is this the right time for a confession?”
+ 
 
-“It’s the perfect time.” Jungkook leans down until his nose right next to Jimin’s throat and inhales through his nose. “Has anyone ever told you how good you smell?”
+ 
 
-The words make Jimin’s cock twitch, and he bites his lip to suppress the whine. This isn’t normal, Jimin decides then. No matter how attracted he is to Jungkook, he’s reacting too fast. Not even five minutes ago, he was scared to death, and now he’s suppressing whines.
+*
 
-“What d-did I just drink?” Jimin asks. It takes all of his willpower to ignore Jungkook’s hot breaths on his neck.
+ 
 
-“An aphrodisiac.”
+ 
 
-Jimin gasps, looking up at Jungkook wide-eyed. “Why would you give me that?”
+The booted footsteps sounded behind him, slow and menacing. Jimin felt his heart-rate pick up, the anticipation and performance anxiety he was feeling hanging low in his chest and high in his throat. Without checking, he could tell the young Master was behind him. He could feel young Master Jungkook’s eyes on him, watching his every move as he moved his achy limbs over the hard floor, the fabric of his shirt suddenly feeling choking.
 
-Sliding his arm around Jimin’s waist, Jungkook pulls the human closer. This small action makes Jimin whole body burn and throb. There is no denial that Jungkook did give him an aphrodisiac. Putting his other hand on the back of Jimin’s head, Jungkook loses no time in leaning down and pressing his lips to Jimin’s.
+He grabbed the wet cloth tighter, putting more of his back into rubbing the oil stain in the Mistress’ room off the porous, wooden flooring. It creaked under his effort, and he wished it wouldn’t. He didn’t want the young Master to pay more attention to him than he already did. At the same time, he wanted to prove his worth. That even if he wasn’t his father or mother, he was useful. The newfound attention was awful, but he was not sure he could stand it going away.
 
-Jimin should protest and push the alpha back, but instead he lets out an embarrassingly loud whine and reciprocates the kiss. It alleviates some of the heat that is threatening to consume Jimin, which is why he can’t bring himself to push the alpha away. Instead, he wraps his arms around Jungkook to keep him as close as possible.
+Without warning, a heavy hand pushed on his head, his neck forced down. He squeaked, struggling to steady himself with his arms.
 
-Jungkook growls, literally growls, a sound Jimin hasn’t heard anyone make during a make-out session, and his kisses grow fiercer. Jimin has never been kissed like this before. There was never this much fervour and hunger. It felt like Jungkook was sucking out his soul along with the air in Jimin’s lungs, pulling him closer to uncharted territory. Jimin should have had enough of this today but he can’t resist the allure.
+“Clean properly. Must I teach you everything?”
 
-At some point, Jungkook pulls back, and Jimin takes in big lungfuls of air. It had completely escaped Jimin’s notice that he almost passed out just now. As much as Jimin is happy about being able to breathe again, the inaction passes his attention to the throbbing ache in his pants. It also gives him a moment of clarity.
+“N-No.”
 
-He raises his head from Jungkook’s shoulder, where he had been resting it, to question Jungkook again, but is silenced by the intensity in his eyes. Jimin had seen that look before; that look that freezes you and roots you to the spot. So far he had only ever gotten it from predators or wolves in their wolf form; never from anyone in a human form.
+The touch in his scalp burned, even long after Master Jungkook had shoved him so cruelly. It felt like a privilege—the young Master having his hands on him still, even when it was no longer necessary. The large hand was threaded through the tresses of his hair, warm and heavy as it rested there. Jimin was left dizzy in its wake, face heated and breath careful as he tried to concentrate on cleaning the mess, when all he could do was think about how undeserving but blessed he was to feel the young Master’s touch.
 
-Suddenly, Jungkook wraps his arms around Jimin’s thighs and picks him up. Jimin squeaks, and scrambles for support. He wraps his legs around Jungkook’s hips, hands balling into his shirt. Jungkook carries him out of the room and into another one. Jimin’s heart skips a beat when his eyes land on the bed, and in the next second he’s laying on it, Jungkook on top of it.
+The touch left his head, but he was still feeling dizzy, breathing harder as he clutched the cloth. There was a tingle where the touch had been, despite it being so rough. Or perhaps, because it had been. He felt delirious.
 
-The alpha wastes no time, immediately going back to kissing Jimin. Jimin makes a protesting sound which is devoured by Jungkook. So he tries with his fists instead, pushing against Jungkook’s chest and pulling at his shirt. Nothing seems to work. Jungkook, unbothered, keeps kissing Jimin and eliciting the most pleased and breathless noises out of Jimin, hands wandering along Jimin’s side and under his shirt. As a last resort, and a bit unwillingly, Jimin bites down on Jungkook’s lip; hard. Jungkook pulls back, tongue darting out to lick away the drop of blood pooling on his lower lip.
+“If you did it properly in the first place, I wouldn’t be forced to waste my time correcting you,” the young Master muttered.
 
-Ignoring the beast-like look in Jungkook’s eyes, Jimin pants, “Wh-why are you d-doing this?”
+“I-I’m sorry,” was all Jimin could think to say. How could he say anything that would be apologetic enough for not being good enough? How could he fail his Master over and over again and still somehow be requested to serve him? “I’ll be better.”
 
-Jungkook’s eyes turn a bit gentle but it doesn’t chase away the hunger, and he doesn’t pull back. Freeing his shirt from Jimin’s fists, Jungkook pins them to the mattress next to Jimin’s head.
+“I highly doubt that,” young Master Jungkook retorted, snorting. Jimin’s lip trembled, but he forced it stiff, cleaning in earnest. “You’re pretty useless.”
 
-“I’m a very selfish guy, Jimin,” Jungkook whispers, breath dancing on Jimin’s sore lips. “And I’m extremely possessive. I can’t let anyone have you. Not even death.”
+Jimin sunk lower, cleaning harder, eyes prickling with tears. He blinked them back as best as he could, while also trying to ignore the ripple of flush he knew had spread down his nape and spine.
 
-Tingles spark all over Jimin’s body, and Jimin is surprised by how much Jimin is affected by Jungkook’s words. Before he can ask Jungkook for further clarification, the thought is lost in the delicious friction that Jungkook causes between their crotches. Jimin mewls when his throbbing, hardened cock finally gets the desired attention, and suddenly no other thought is important.
+“Aren’t you, Jimin?” the young Master pressed, suddenly sounding much closer than he had been before. Jimin saw his Master’s feet in front of him, and then he was squatting down next to his face. Jimin felt hot, his throat constricting as he almost saw his Master’s face up close. A rough hand grabbed his chin, yanking it up. He was made to stare directly into young Master Jungkook’s eyes. “Aren’t you useless?”
 
-Jimin raises his hips in search for some relief again, moaning into Jungkook’s mouth. Jungkook presses Jimin’s hips down with his hand, moving his hips against Jimin’s, Jimin feeling how hard Jungkook already is. He doesn’t care how desperate he looks right now, and how he’s humping Jungkook like some horny teenager. He’s too far gone to care about anything but relief, no longer kissing Jungkook but just breathing into his mouth.
+A few warm, soppy tears slid down his face before he managed a nod, limbs so shaky he was almost unable to hold himself up. But Jungkook held him by his chin in a vice, not about to let him crumple on the floor any time soon.
 
-They lose their clothes at some points – the only thing Jimin remembers is that he was annoyed at Jungkook for removing himself from Jimin for a moment to take them off. All the question he had, all the doubts and confusion are forgotten, burned away by the heat Jimin is feeling. He’s hot and sweaty and hard; so, so hard.
+“Say it.”
 
-Jimin gasps when he feels an oil-slicked finger at his entrance. Jungkook is circling his hole with his finger before slowly pushing inside, the other hand pumping Jimin’s cock in slow motions. He doesn’t feel the second finger through all the pleasure but when Jungkook adds the third one, he does make a pained sound.
+Jimin sniffled, making the mistake of looking into Jungkook’s eyes for a split second before he trained his gaze on the walls near the curtains. He breathed hard through his nose, his mouth clamped shut at the force of Jungkook’s hold. Suddenly he couldn’t breathe, his neck strung up too taut. His weak arms reached up and flailed as they scrambled to hold onto Jungkook’s punishing hand, trying to alleviate any amount of pressure he would let up.
 
-Jimin had anal sex before. He had been with two men before but that has been so long ago. He also fingers himself sometimes when he feels like getting himself off with just his cock isn’t enough but they don’t feel like Jungkook’s. The alpha’s fingers are so much longer and thicker than his, having a deeper reach than Jimin’s, and Jimin can’t wait to have Jungkook’s cock inside him. By the time Jungkook has added a fourth finger, Jimin is too impatient, his cock too hard.
+“Jimin’s useless,” he squeaked out in an almost intelligible way as a last resort, crying in Jungkook’s hold. He saw the corners of Jungkook’s lips lift up in what resembled a smile. Before he felt a release that he’d expected to come after being obedient, he heard the door behind them open, not even sure when it had been shut, and suddenly Jungkook was holding onto him tighter.
 
-“J-just put it ah put it in,” he breathes, swatting at Jungkook’s hands that is thrusting in and out of Jimin.
+There was an odd moment of silence wherein the only sound in the room was Jimin’s panicked breathing and sullen hiccuping, and even that seemed too loud.
 
-Jungkook leans over him, not stopping either hand. “Trust me, you don’t want that.”
+“Is Mother out?” a deeper voice asked into the room. Jimin recognized it as Master Namjoon’s voice—the eldest son. He had never interacted with him before, personally, but had seen him at dinner and sometimes in the halls. He was smart, well-spoken, and polite. He never felt a need to raise his voice. Despite his voice sounding deeper, it was also softer than Jungkook’s. And he had nice hair.
 
-Jimin bites Jungkook’s lips again, offended by his words, and hisses, “Just put it in.”
+Young Master Jungkook kept silent for a few moments. He gripped Jimin’s jaw ever tighter, as if to signal him quiet, too. Jimin wondered if Master Namjoon could see his ugly, horribly wet face.
 
-Letting out a chuckle, a sadistic grin appears on Jungkook’s face. Without saying anything, he thrusts his fingers deeper inside, curling them up and stroking that one sweet spot inside Jimin. Jimin screams, hands reaching out to grip Jungkook’s bicep and shoulders, nails digging into his skin. The alpha is unbothered by it, stroking faster.
+“How would I know?” Jungkook responded, in a way that pressed that he was currently occupied.
 
-Jimin throws his head back, gasping and panting as Jungkook’s fingers relentlessly and mercilessly stroke his prostate. He’s coming soon, screaming and cock twitching in Jungkook’s hand while his orgasm hits him. Too late he notices Jungkook’s hand tightening around the base of his cock. His legs are still shaking after he comes down but his orgasm was dissatisfying.
+“You’re in her room.”
 
-Jimin glares at Jungkook with tears in his eyes, some of which he had shed in the middle of his orgasm. The alpha is still smirking at him devilishly, pulling his fingers out too abruptly. Jimin gasps from the sudden emptiness, hole closing and opening around air.
+“Well, I don’t know,” his young Master said, voice sounding angrier. It made Jimin tremble. “And I don’t care.”
 
-Jungkook sinks his hand into Jimin’s hair and tugs at it, making sure the man is looking at him before whispering, “Bad boys don’t get to enjoy themselves.”
+Silence, again. Then, footsteps of someone retreating.
 
-Jimin would’ve felt humiliated were it not for how his body feels like it’s on fire and the aching in his cock. He will do anything to get any relief, even beg. His mind is hazy and he is driven solely by his needs, but there’s nothing else Jimin needs right now.
+Jimin didn’t know whether to be elated or more fearful, now. When Jungkook moved to close the door back up, he settled on fearful.
 
-“Now be a good boy,” Jungkook says with another tug at Jimin’s hair.
+ 
 
-Jimin nods, unable to form a sentence or even a word at this point. With a satisfied smile, Jungkook lets go of Jimin’s hair and reaches for the lube on the side of the bed. Jimin whimpers when he watches Jungkook lube himself up, feeling a trickle of fear at the sheer size of Jungkook’s cock. There’s something else there too, Jimin notices: excitement.
+ 
 
-Done with the lube, Jungkook grabs Jimin’s calves and pulls the man closer to him, situating himself between his legs. He lines himself up, tip teasing Jimin’s hole as he slowly makes his way in. Jimin hums pleased, eyes closing and toes curling in anticipation of the pleasure. What he feels instead is pain, Jungkook’s cock feeling bigger than it looks.
+ 
 
-It only gets worse as Jungkook keeps pushing in slowly, and Jimin’s hands scramble for purchase but only finding the bed sheets, closing his eyes tightly. When he can no longer hold it in, he whimpers, hands pulling at the sheets tightly.
+*
 
-Jungkook starts stroking Jimin’s cock to distract him, and leans over him again, propping himself up on one hand next to Jimin’s head. “Relax,” he breathes into Jimin’s ear. “It’ll hurt less.”
+ 
 
-Jimin bites his lips, and doesn’t respond, but he does wrap his arms around Jungkook’s shoulders, holding onto him. With a grunt, and a pained gasp from Jimin, Jungkook bottoms out.
+ 
 
-“Fuck,” Jungkook growls, nosing along Jimin’s neck. “You’re so tight.”
+A rare day of rest and regaining the feeling in his almost numb, prickly hands while sitting out of the way by the fence in the garden overlooking the swaying wheat crops felt eerily out of place. Still, Jimin smiled into the speck of sunshine that shone down from the otherwise cloudy sky. The wind that was neither cold nor warm whisked up his hair and billowed it around his face.
 
-Jimin can’t respond. He needs all his energy to breathe properly. When Jungkook finally moves, it’s painful and relieving at the same time. Jungkook, having stopped stroking Jimin’s dick, slowly picks up the pace, hips moving faster. Slowly, Jimin’s pained gasps turn into moans, the drag of Jimin’s cock against Jimin’s hole no longer burning. Jimin is finally getting some real relief, and he is losing himself in it.
+As he sank his bare feet into the grass under his toes, he wondered if that cold, refreshing feeling could make him feel more than the boot mark seemingly permanently imprinted on his shoulder could. How would the grass see him? How would it hold him and demand of him and force him to let go of himself? How would it whisper the cruelness of the world to him in choice words fit only for passionate hatred. Soothe him it could, but the soothing felt only half as immense without the sting beforehand.
 
-His mind is getting hazy. Only Jungkook, who kisses Jimin from time to time, is in focus. If he were sane, he’d be embarrassed by the squelching sound the joining of their hips makes, and by the needy pants and hiccups he’s letting out. But all that doesn’t matter. The only important thing is how Jungkook feels inside him and how his hand travels over Jimin’s body, one of them wrapping around Jimin’s hips and raising them into the air. With the next thrust, Jungkook’s tip brushes against Jimin’s prostate, Jimin releasing a high-pitched moan.
+He closed his eyes, toes wiggling again. If he tried hard enough, he could smell the lake from there. And harder yet, the forest further over. Vast, observable unknowns that made him feel small and claustrophobic.
 
-Jimin wraps his legs around Jungkook’s hips to keep the alpha as close as possible. Jungkook’s nose finds its way back to Jimin’s neck, as if in search for something, sniffing and growling. Jimin doesn’t notice any of it, too distracted by his approaching orgasm. He holds Jungkook tighter as the man’s cock keeps brushing against his prostate, and throws his head back when he reaches his orgasm. Jimin moans, blissful and high, legs shaking from the aftereffects of his orgasm. That changes when Jungkook bites down on his neck, his eyes flying open with a pained gasp.
+“Hello.”
 
-
+Jimin jolted up, whipping his head around and grappling at the stone ledge he was perched on.
 
-Jimin wakes up slowly, opening his eyes once but keeps them closed afterwards. He’s waking up and he resigns himself to his fate but he’s in no hurry to do so, keeping still on his stomach. He keeps his eyes closed, too warm and comfy to even move an inch. As his mind clears up slowly, so does his memory and his senses. The sheets he’s entangled with do not smell like his, and his sheets are not quite as rough as these. Bleary, Jimin blinks multiple times and lifts his head to look at the room. He turns, and that’s when pain shoots through his lower back and he gasps, fists clenching into the sheets. And just like that, memories from the previous night flood in, overwhelming Jimin.
+Master Namjoon walked his way from the house, more in control of his body than Master Jungkook had ever been. He was slow about it, where young Master Jungkook was brash. His hair was also billowed by the wind, though his skin wasn’t slick with sweat from hours in the kitchen, bunching said hairs up unattractively on his forehead.
 
-Jungkook had given him an aphrodisiac and they had sex. Not just once but multiple times. Jimin doesn’t even remember most of it. He was too out of it, woozy from the aphrodisiac.
+“My name’s Namjoon,” the Master offered, as if Jimin wasn’t fully aware already. His body language was open, inviting. Jimin bit his lip, suddenly feeling invasive for sitting in the gardens, though his mother had claimed he was allowed out. The fresh air felt almost like a luxury he shouldn’t be afforded. “What’s your name?”
 
-With difficulty, Jimin manages to turn onto his back, whining when pain flares up in his back again. He waits until it has subsided to think about what happened. There is not a single reason Jimin can think of why Jungkook would drug him and have sex with him. Maybe he wanted to have sex with Jimin at least once before Jimin s is sentenced to death and thought Jimin wouldn’t get into the mood for it unless he’s drugged. That doesn’t sound like Jungkook though. So why? That aside, Jimin can’t even begin to think of what he should make of being drugged and having sex with someone. And for some reason, Jungkook isn’t even in the room with him.
+He chewed on his tongue, looking past Namjoon and back towards the door, that looked dark in the now overcast light from outside. He looked back up at Namjoon, pulling his feet out of the grass.
 
-Jimin moves his arms to heave himself into a sitting position but freezes when he feels a sting in his right shoulder. He reaches up with his left hand to touch the area, heart skipping a beat when he feels a circle wound and some blood clot. Jimin’s breathing quickens and he forces himself into a sitting position, biting down on his lower lip to bear the pain. He needs a mirror and he needs it now, aching body be damned.
+“Jimin.”
 
-Pulling a sheet around his naked, and very marked up, body, Jimin walks to the mirror that he sees hanging on the wall in the corner of the room. He casts one look at his shoulder and his eyes widen, mouth going slack. A series of teeth marks is left on shoulders, deep and, by now, clotted. Jimin has talked about this in school and seen some faded marks on some wolves but he has never seen a fresh one. It’s a mating bite.
+Namjoon considered him for a second, eyeing his feet, hair, and hands. Jimin only just noticed that Namjoon was dressed in his night-wear.
 
-The room spins, and Jimin has to lean against the nearest wall to keep himself upright. He was given a mating bite. Jungkook gave him a mating bite. He is human but he has a wolf’s mating bite, and he has no idea what this means.
+“Hi, Jimin. Are you alright?”
 
-Once the dizziness subsides, Jimin limps back to the bed and sits down on it. At a loss for what to do, Jimin starts collecting the clothes Jungkook gave him last night and that are now spread all over the floor. He wants to shower but there is no way he can do that alone in this condition, so he puts the clothes on, wincing every now and then, and then sits on the bed again, trying to regain his breathing. Putting on clothes had never been this exhausting before.
+He was unsure of the protocol for such a question. Most of his responses were relegated to ‘Yes, Master,’ ‘Please, Master,’ or ‘No, Master’. This was new, and uncomfortably so.
 
-The panic Jimin had managed to keep under control by acting normal is starting to settle in, a good amount of confusion too. He is hurting all over, is close to tears, and wishes Jungkook were here.
+“Yes, Master,” he tried, not sure what the right answer could be. Was this a test? If so, how could he pass it? Was Master Jungkook watching?
 
-Wait.
+“Does Master Jungkook hurt you?” Was the next thing out of Namjoon’s mouth. Jimin gasped, scandalized. He didn’t say anything, merely staring up at Master Namjoon, which he was aware was terrible to do. Staring was rude. He was just so confused. Would he be in trouble? Was he already in trouble? “Are you afraid of him?”
 
-Why would he wish Jungkook were here? Jungkook did this to him. He should be staying away from him. For some reason, a part of Jimin objects to that thought.
+Jimin blinked, glancing around himself. Nobody else was there. Nobody else could see.
 
-In that moment, Jimin hears voices coming from outside and then the front door is opened. With each step taken towards the room Jimin is, Jimin’s heart beats faster until the door is opened and he breathes a sigh of relief upon seeing Jungkook.
+He nodded, yes. How could he not be? Then caught himself, and shook his head, no. No, he wasn’t. His young Master only ever punished him for his own failures. And Jimin was not afraid of his own failures. He was unapologetically able to own up to his own shortcomings.
 
-“Shit,” Jungkook curses immediately and closes the door behind, walking towards Jimin. “You’re awake already.”
+“It’s okay, Jimin,” Namjoon continued, lowering his head. “You can speak candidly to me,” Namjoon said with a soft voice, smiling at him. Jimin swallowed hard, unsure of the situation, which was just about as foreign to him as when young Master Jungkook had first started lavishing him with attention. “I need to know if Master Jungkook hurts you and treats you badly.”
 
-Jimin flinches, leaning away from Jungkook’s touch. He may have been happy to see Jungkook, but now he’s conflicted. This is the man who made him drink an aphrodisiac and fucked him while he was in a senseless state.
+Jimin shook his head adamantly. No.
 
-Jungkook grows more cautious after Jimin’s rejection and crouches next to the man so he’s looking up at him.
+“Are you sure?” Namjoon asked, seeming unconvinced. He seemed to pretend to join Jimin in surveying the wheat fields and smelling the faint hint of lake in the air.
 
-“How are you feeling?” Jungkook asks.
+Jimin nodded.
 
-Jimin stares into his wide, doe like eyes, trying to piece together the events from last night. He doesn’t answer, just swallows audibly, and tries to remain calm so the tears gathering in his eyes won’t spill.
+“Alright,” Namjoon said. Then he sighed, deeply. Goosebumps rippled over Jimin’s skin, and he could almost feel the breath from Namjoon’s nose at their proximity. “My room is on the second floor next to the painting of the willow tree. If you get scared, do not feel afraid to come to me.”
 
-“You’re confused,” Jungkook whispers and smiles reassuringly at Jimin. “That’s normal. It’s okay. I’m here.”
+Jimin just stared at him, even after an awkward silence wherein Namjoon finally turned on his heel and strolled back inside. The curtains flapped in the wind at the door Master Namjoon had left open. Jimin stared at it until the grass no longer looked green in his peripheral vision, the sun set into darkness.
 
-Jimin hates it but those words do sound reassuring and make him feel warm, especially the last part.
+ 
 
-Carefully and slowly, Jungkook takes a seat next to Jimin and raises his hand. When Jimin doesn’t flinch this time, Jungkook cups his cheek, wiping away the tears that fall when Jimin closes his eyes and leans into the touch. It’s instinctual, something Jimin doesn’t have the energy to fight. In the next moment, he’s sitting in Jungkook’s lap, face buried in Jungkook’s neck as the alpha holds him close and whispers sweet nothings into his ear.
+ 
 
-His walls broken down, Jimin lets the wolf comfort him, and, once he’s calmed down, undress him and take a bath in bathroom. His sore and aching body sags with relief when he’s laid into the water, by none other than Jungkook. The alpha disappears for a while; time Jimin takes to think of how similar the bathroom is to the one at home. Jungkook is back fast, with a radiant smile on his face, and helps Jimin wipe down. Any other day Jimin would rather die than have someone else wash him but he doesn’t mind, not even when Jungkook carefully cleans the bite, the smile on the alpha’s turning softer.
+*
 
-Once they’re done, Jungkook helps Jimin dry himself with a towel, a fresh change of clothes ready. He leads Jimin to the bedroom again, sheets changed for new ones and a tray with food on the bed. Jimin obediently sits on the bed and drinks the glass of water Jungkook presses into his hands. He was parched. The food, he doesn’t touch though, his stomach turning at the sight.
+ 
 
-“You should eat something,” Jungkook says in a calm, comforting voice.
+ 
 
-Jimin looks at him, voice rough from unuse. “Why?”
+Jungkook enjoyed baths in the dark cloak of night, moonlight being the only thing illuminating his skin in the glisten of lukewarm water. He inhaled a deep breath of air, the room smelling of wax and smoke from a few candles near the vanity. In the corner of the room, barely hit by moonlight himself, stood Jimin, holding a cloth towel ready for whenever Jungkook would choose to emerge from his wash. He smiled to himself as he gazed over his servant’s downcast eyes, his posture small and cowering against the wall. Jungkook would be lying if he were to pretend at least half of that demeanor wasn’t his doing. His slow and deliberate moulding.
 
-Jungkook blinks, taken aback by the sudden question. Jimin can see that Jungkook notes the change in his mood.
+He raked a wet hand through his long hair, feeling the tug of it as he mused on the pitiful form in the corner. His eyes then travelled down his own wet chest, toned to perfection from his vigorous outdoor activities. Lower yet stirred a monstrous desire he had been feeling and listening to as it grumbled for attention, spurred by nothing other than the feedback loop that had been tethered to the boy near him, licking at his most surreptitious urges and coaxing them out so, so easily.
 
-“Why did you do this?” Jimin asks, voice firmer this time.
+He exhaled so hard it rippled the water, cocking his head to the side. He let his eyes wander to his content.
 
-“They were going to execute you,” Jungkook explains calmly, “just because you’re human. They won’t do that to a pack member.”
+“Don’t feel like putting in work, Jimin?” He heard the cutting edge of the words himself before they even reached the servant, feeling his own skin riddle with goosebumps. The reaction from his servant was instantaneous, multiplying his own elation by tenfold as he swallowed the curls and ribbons of fear, anticipation, and yearning emanating off of the small boy.
 
-“So you gave me a mating bite?” Jimin asks, voice rising and incredulous. “Without asking me?”
+“Master,” Jimin croaked, dropping the towel unceremoniously as his eyes widened in attention, searching Jungkook’s for guidance amidst his shock. “What can I do for you?”
 
-Jungkook’s face hardens but he doesn’t look remorseful. It infuriates Jimin.
+“Why do people take baths, Jimin?” Jungkook offered unhelpfully, gut clenching deliciously at the clueless look in his servant’s eyes. The interaction wasn’t fair to Jimin, but he didn’t mean for it to be. It was Jungkook leading the conversation and the reactions, completely and utterly in control of the outcome and the way it played out.
 
-“You tricked me into drinking an aphrodisiac and gave me a mating bite. Me! A human. That’s fucked up!”
+“I…” Jimin looked around, then back at his Master, unsure of what to say. “T-To wash up?”
 
-“It is,” Jungkook agrees, “but so is the fact that they wanted to sentence you to death for an accident.”
+“Exactly. What a good boy you are,” Jungkook praised mockingly, giving Jimin a pitiful smile. Jimin heated red, visible even in the pale moonlight. Jungkook leaned a wet arm over the edge of the ceramic tub, tilting his head back at an angle while he admired the flush spreading over Jimin’s cheeks and down his neck. “You don’t expect me to wash myself, do you?” He said, trying to sound pitiable.
 
-Jimin shakes his head. “You don’t know that. You said some were for cutting off my hands.”
+Jimin’s eyes widened, Jungkook following them down to his wet chest. The servant shook his head slowly, eyes flying around as if to try and piece together the right thing to do from observation alone. Jungkook let him struggle for a few seconds, before beckoning him towards him with a lazy hand, bathwater rivulets dripping down to wet the wooden floor. His mother would be upset. Luckily for him, she was preoccupied with becoming a neurotic mess.
 
-“No. It was death. And you said cutting your hands was as good as being dead. And I couldn’t let either of those things happen.”
+Jimin walked towards him, eyes having a hard time staying on Jungkook as he stepped all the way up to the tub, gaze resting on Jungkook’s shoulders as he got close enough for Jungkook to grab. Jungkook didn’t grab, but he did take Jimin’s hand into his thumb and pointer finger, exerting unusually soft pressure around the flesh for his usual demeanor.
 
-“Oh, so what?” Jimin laughs humourlessly. “You’re my saviour now? Should I bow to you in gratitude?”
+“Wash me,” he commanded.
 
-“That’s not what I want,” Jungkook deadpans.
+Jimin looked like a fish out of water, gaping at him, not knowing how to do what he was being commanded to do. And it wasn’t like Jungkook didn’t know that. He just smiled up at him, unable to stop the quirk of his lips from turning up into a smirk. Jimin’s trembling hand sent jolts of pleasure to his already stiff nether region, the head of his cock now visibly bobbing above the horizontal line of the water. Jimin would have to avoid that little mistake with all the decency in him. Jungkook, of course, was equally ashamed. So, so, utterly embarrassed. Devastated.
 
-“Then what do you want? What was the purpose of this?”
+Eager still to listen and to do good, Jungkook watched his servant reach for the bar of soap on the edge of the tub, touching it to Jungkook’s chest and applying gentle pressure. He looked to Jungkook for guidance, as if asking if he was doing okay. Jungkook, usually too impatient to care but feeling particularly benevolent, leaned his head in his hand and gazed down at Jimin’s ministrations.
 
-“For you to live.”
+“Go on,” he urged, feeling lazy and satiated as Jimin began rubbing at his chest, using both his small hands and the soap piece to clean along his skin. Jungkook rarely had muscle aches or any blemishes, resulting from him barely having to lift a finger in his personal or professional life, but having his flesh touched by surprisingly gentle hands was a treat. He’d expected Jimin’s hands to be callous from all the hard work, disgusting even, but somehow the cleaning work he did must have softened them, because Jungkook didn’t hate the touch as much as he’d expected to. Continuing in earnest, Jimin cleaned down his chest to his abdomen, submerging his shirt sleeves in a determined effort to please him with following instructions.
 
-Jimin is stunned into silence. Jungkook looks serious, so serious that it confuses Jimin. What is Jimin supposed to do with this information, with the look Jungkook is giving him right now? Before he can ask, there is a loud bang at the front door. Jungkook tenses, looks behind him once to check something and then back at Jimin again.
+He licked his lips and chuckled internally when Jimin hesitated and tried to work around the glaring erection he was sporting in the water, standing proud and intrusive in the murky darkness of the edge of the tub. He watched him gulp, accidentally brushing against it with his arm. The doe eyes he’d grown elated with dampening looked to him, then, heavy but chaste with what Jungkook could only assume was repressed arousal.
 
-“We’ll have to go in front of the elder’s council right now,” Jungkook explains.
+“Are you done?”
 
-Jimin’s eyes widen and he bites his lower lip.
+Luckily, he didn’t have to wait long before Jimin seemed to decide he hadn’t cleaned everywhere, getting to work with wrapping both soap and palm around his hardened flesh, working around it. He groaned, digging his toes into the end of the tub as he fought back violent urges that involved grabbing the servant so hard he would never recover the use of his arms.
 
-“I already told them what happened. They just want to see it with their own eyes.”
+“Your hands are too rough, stupid boy,” Jungkook barked; a stocky lie. He didn’t want to bother putting in effort. He wanted to sit back and be serviced, like he should. To have his bliss in the darkness; in the moonlight, free from distractions and judgement. A taste of reward for putting up with the maniacal goings on around the manor. He wanted his spoils for winning the war of wills in the house. He wanted his own, personal recompense. “Do you want to use your mouth?”
 
-Jimin inhales deeply, eyes nervously flitting to the door when there’s another loud knock.
+“Mouth?” Jimin aped back in a tiny voice, frozen with a hand still fisted around Jungkook’s manhood, his cheeks pink in haze. Jungkook smirked, tracing a pair of his wet fingers down Jimin’s jaw.
 
-“I’ll be there the whole time,” Jungkook says, reaching for Jimin’s hand.
+“You’re salivating at the sight, aren’t you? You can put your mouth on it and swallow me clean.”
 
-Just seconds ago, Jimin was yelling at the alpha, and now he is glad Jungkook is holding his hand.
+Jimin’s clothed arms fell into the water for purchase, followed by his coughing into the water as he reached for Jungkook’s tip with his tongue and pouty lips. Jungkook actually groaned when he felt the pillowy twins latch onto his tip in earnest, his servant having practically half submerged himself in the water to get the angle right to suck him off. Jungkook reached a hand in his hair to help him down, bucking his hips up slightly. He heard the telltale sound of gagging, then a choke, his balls tightening instantly.
 
-“Lets go.”
+“That’s it.”
 
-Without any other choice, Jimin gets to his feet and follows Jungkook outside, clinging to his hand. By the time they reach the front door, Jimin’s heart is beating in his throat and blood is rushing in his ears.
+He felt Jimin’s mouth move, chuckling to himself. He dragged him further into the water, pressing the pads of his fingers against Jimin’s throat as he forced his cock down it, all but drowning him. To his surprise, his little servant let himself be maneuvered like a doll, limp in his hold and allowing Jungkook to use his mouth in the water, only bubbling and coughing for air when he absolutely needed it. Otherwise, whining and huffing in pleasure. The best part was that he couldn’t tell if the boy was crying or sweating or disinterested because of all the water splashing around his head and face, rendering him passive as he took Jungkook into his mouth and throat until the Master was satisfied. The harder he tugged and further he thrust his hips, making Jimin gag on it, the louder his little moans became.
 
-Three tall and buff male wolves are standing in front of the cabin, a female wolf who looks just as buff as the male ones with them. They’re all alphas. By now Jimin can distinguish them well. They’re more rough-looking than the other wolves. Jimin doubts they’re there for him. One alpha is more than enough to stop Jimin from escaping, two at most. Which means they’re here to subdue Jungkook if need be. The thought only scares Jimin, twisting Jimin’s stomach into knots. His head starts pounding but he ignores it. It might not matter soon anyway.
+He curled his feet and bucked up particularly hard when he felt close, grabbing Jimin’s wet hair and thrusting into his warm mouth, thinking about his teary eyes, his small body, and his obedient demeanor. The slick wetness was so warm and easy to rock into, velvety smooth against his sensitive flesh and growing tighter yet from spasms, swallows, and coughs. He closed his eyes, licking his lips as he continued to thrust, ignoring the servant’s futile attempts at using his mouth and tongue to pleasure him.
 
-The female wolf doesn’t react when Jimin steps outside but the male wolves either sigh, shake their head or roll their eyes. Their disapproval and disbelief are clearly visible on their faces. They are led past multiple cabins and further into pack territory until they are standing in front of a gathered crowd. It looks like everyone has come to watch what is about to happen, whispering and glancing curiously at Jimin, while he has no idea what fate awaits him.
+Jungkook released his semen into Jimin’s waiting mouth while holding his head still and pulling his hair back to have a look at his face, hearing the whiny choking as he startled the smaller boy.
 
-A few feet away from the crowd is the head alpha, multiple other wolves at his sides. They stand in front of them with their backs to the crowd. To the side, the one Jungkook stands on, are a few wolves of all ages. Judging by their grieving expressions and the hate that flares up when they see Jimin, he can only guess them to be the victim’s family. Everyone falls silent when Jimin and Jungkook come to a stop in front of the head alpha who is quietly watching Jungkook.
+When he was all done, he let go, resting his head back against the wall, finally feeling the last of his tension leave him. Jimin pulled off him shakily, coughing and drooling spit and semen into the water as he hung over the edge of the tub, wet body sagging over Jungkook’s knees. Jungkook grimaced, shoving at Jimin’s chest with his legs to tip him back over the edge and onto the floor.
 
-Jimin has talked to the head alpha before. During an attack on the village, Jimin had taken over command after their leader was killed, and, once everything had turned quiet, turned around to find the head alpha staring at him in his human form.
+“Don’t get that shit in my bath water,” Jungkook snarled, grabbing fistfuls of tainted water and hurling it at Jimin, who flailed around on the floor, flinching at the assault. He crawled back and away, letting Jungkook have a glimpse at his red-rubbed, swollen lips and wet chest, which had been exposed with the friction. In a sordid, fucked up way, that sight alone was more satisfying to him than the whole ordeal that had just occurred. He yawned, feigning boredom and leaning back with semi-closed eyes. He saw Jimin move closer to him, coming back as if to finish his cleaning; to go for more. Jungkook glared at him, crossing his arms over his chest. “Get out so I don’t have to look at you like this. It’s pathetic.”
 
-“You’re skilled,” he had said with that calm, detached way of his. “It’s a shame you’re not one of us.”
+He refused to move even an inch as he heard Jimin struggle and rustle around on the floor, hastily doing up his blouse and trying to stand up on shaky legs. He sat still, enjoying the sounds of quick feet padding across the washroom, sprinting hastily to get out of Jungkook’s sight.
 
-Jimin still thinks the head alpha is kind but aloof. He always seems far away, saying little but always something impressive. He is wise despite only being in his forties.
+Poetry, perhaps.
 
-“So you seem intent on protecting the human,” the head alpha speaks up, and though his voice is low, it booms over the whole place. “Even if it means disobeying your pack.”
+ 
 
-“I’ve always been quite the romantic. You know that,” Jungkook responds with a self-satisfied smile. It kills Jimin to see it. Shouldn’t he be showing at least some remorse?
+ 
 
-The head alpha’s eyes wander over to Jimin, the same quiet aloofness in them. It’s as if nothing from this world can touch him, and Jimin again finds himself admiring him. He walks towards Jimin, authoritative despite being smaller than the alphas keeping Jungkook under guard, and stops in front of him. Jimin resists the urge to look at Jungkook for guidance. When the head alpha raises his hand, Jimin half-expects him to strike him down and half to kill him right there. Instead, the alpha moves his chin slightly to the left.
+*
 
-Oh, Jimin thinks, he’s inspecting the bite. And suddenly, Jimin feels insecure and wants to hide in the cabin again. It feels wrong to have someone look at it. No! To have someone else other than Jungkook look at it.
+ 
 
-Seeming satisfied, the head alpha lets go of Jimin and steps in front of Jungkook, eyes raking over his neck and shoulders. “It’s a one-way bond,” he remarks.
+ 
 
-“For now,” Jungkook says through gritted teeth, “and regardless of that, Jimin is bound to me now. He is one of the pack now. So, you either accept him as such or kill us both; like the rules demand.”
+Namjoon heard the footsteps before he saw him, sitting up a little straighter in his room as what sounded like a wet sprint closed in on his door. Just outside, he could hear heavy, hitched breathing, someone clearly hesitating right near his quarters. And he knew exactly who it might be. He considered walking towards the door to open it, but worried he might scare off the boy. He had told Jimin to come to him, after all. Whenever he wanted to. It wasn’t his place to chase down their servant like some madman and order him to tell him this or that, to do this or to do that. The boy had his own will, and his own limits. His own thought processes. The problem was, Namjoon wasn’t so sure the boy was all too aware of them himself. Sure, him being a servant did not diminish his ability to think for himself or his feelings, but Namjoon couldn’t help but worry for him nonetheless.
 
-Jimin’s eyes widen upon hearing that, head whipping around to look at Jungkook. Jungkook would get killed with him? If the pack decides to kill Jimin, Jungkook would die too.
+“Jimin?” He tried to ask as carefully as possible, asking it into the empty room and into the quiet hall. The panting outside stopped, and for a second he was worried the boy had left, until he heard a strangled sob from outside.
 
-“There are exceptions. Mates don’t always get killed together,” the head alpha points out.
+Namjoon bit back his better judgement and got up, walking towards the door as calmly as he could. When he opened it, the sight of Jimin, wet and hair mussed up, face red but pale at the same time, greeted him. He bit back a reaction, settling instead for looking the servant over and checking for bruises or marks from suspicious treatment.
 
-“If you don’t kill me, then I will kill myself.”
+“Why are you wet, Jimin?” He asked calmly, willing the boy to look at him. Jimin didn’t, instead opting for gazing at his chest and keeping it at that level. Hesitant, perhaps. Deferring his position.
 
-Sighing, the head alpha goes back to his spot between the members of the elders council. Then he looks at Jimin. “Welcome to the pack.”
+“Why does he hate me?” Jimin mumbled almost inaudibly into the silence, not at all answering his question, but clearly distressed about something. “Why must I be disgusting?”
 
-Jimin has no time to process the words, too stunned, when someone interjects loudly, “No! You can’t be serious.”
+“Who? Is this about Jungkook?” Namjoon asked, furrowing his brows. He had known for a while that Jungkook acted a certain way around Jimin that most people, even of their standing, would consider...unsavory. Cruel. He’d seen some of it himself, and the rest he could guess and piece together based on how Jimin carried himself around the manor. He’d always found Jungkook to be spoiled rotten, and too mouthy for his own good. Though initially, he’d just thought of it as a childish phase that would soon blow over. Maybe after a few years in the real world, forced to learn from his father’s trade, would he better himself and his demeanor. Though years later, and now with this new development, they seemed as far away from that as they had ever been. “You’re not disgusting,” Namjoon pressed, reaching a hand out to place on Jimin’s wet shoulder. The boy flinched back from his touch, as if he didn’t want it. Didn’t need it.
 
-One of the wolves, one of the younger ones, walks into the circle and glares at Jimin menacingly. “I refuse to accept this.”
+“I do everything he tells me to,” Jimin continued, for the first time since Namjoon had met him speaking up without inhibition. “I would do anything for him,” the servant breathed, almost as if in a trance. Namjoon could see pure devotion on his face, adoration even. Lovesickness? Longing? Strong, attached emotions that Namjoon had never thought anyone could feel towards his brother, of all people. “Why can’t he see me?”
 
-She takes another step towards Jimin but then Jungkook is there, pushing her back and quite literally growling into her face.
+“Jimin…” Namjoon was lost for words, raking his gaze over the boy’s frazzled attire and demeanor. He tried again to reach out to steady him, however, as if sobered up this time, Jimin flinched back, seeming to catch himself in a most embarrassing position. He shook his head while blushing furiously, taking a few steps back. Namjoon, foolishly, reached out a hand to stop him, sending the boy into a newfound panic.
 
-“You talk to me. Not to my mate.”
+“I’m sorry—Master, I-I never meant to disrespect—”
 
-The female wolf scoffs. “I think we’re far past talking. I demand a duel.”
+“Jimin, it’s okay—”
 
-The silence is broken, the crowd talking loudly amongst them. Some talk about how tragic this is, whereas others holler and call for a fight.
+“Please forget it. Please, I didn’t mean to…to come here, or say anything, I...”
 
-Jungkook smirks, looking as if this is the best thing that could’ve happened to him. “Talk terms.”
+Namjoon kneeled down to look up at the servant’s distressed face, eyes imploring as he spoke to him.
 
-“You win, I’ll back off. I win, I get to kill that freak myself.”
+“You can tell me if something is wrong,” Namjoon said firmly, grabbing a hold of the boy’s hand and stroking it gently. “You can talk about what’s hurting you,” he added, smoothing his thumb over the boy’s delicate wrist.
 
-Jimin knows wolves have been referring to humans as freaks or even malformations since their existence, but it was never said to his face before. His pack isn’t one to throw that word around easily but he supposes he can’t hope for that anymore.
+“You wouldn’t understand—n-nothing is hurting me, I just—” he looked remorseful for his harsh tone, bowing down to Namjoon and pulling his arm away shyly. “Please—forget I came. Please do not mention that I spoke to you.”
 
-“I accept.”
+“Do not tell Jungkook?” Namjoon hinted, trying to pry it out of him. Jimin’s expression went sour. He shook his head.
 
-“Jungkook!” Jimin calls out appalled but his voice is drowned out by the cheers and the sudden movements that Jungkook’s declaration causes. Everyone starts walking backwards, clearing some place, for the duel apparently, and cheering on loudly. Someone even procures a drum from somewhere. The pounding in his head gets worse.
+“I-I did not say that,” Jimin pushed, walking further away while Namjoon stayed still on the floor, kneeling for him.
 
-Jimin looks at the head alpha for help but he seems unmoved by the events playing out in front of him. Someone pulls at Jimin’s sleeves, gently leading him away from the middle.
+“Okay, Jimin,” he tried, wary of the smaller boy seeming to withdraw more and more into himself. He knew he wasn’t obliged to Jimin’s time or thoughts, but a part of him had such a strong urge to be of aid that he couldn’t repress it.
 
-“You should give them some space,” the wolf whispers, leading Jimin to a lightly crowded place and stands next to him.
+“I will see myself to bed, Master,” Jimin whispered, face pale as he retreated, the weight of how much he’d talked seeming to nauseate and frighten him as Namjoon observed him walking away. He was left to his own thoughts in the hallway that were scattered alongside the wet footsteps that had been left behind just moments prior.
 
-“We should stop them,” Jimin says, looking up at the wolf.
+ 
 
-One of the corners of the wolf’s mouth rises and he looks at Jimin as if he’s looking at a child. “You still have a lot to learn. Unless for a good reason, it’s cowardly to refuse a duel, and trust me, this is the best-case scenario for you two.”
+ 
 
-“He could die. How’s that for a reason?”
+ 
 
-“Not good enough.”
+*
 
-Jimin scoffs, and this time the wolf smiles at him with a genuine smile. “You’ll learn all this.”
+ 
 
-Shaking his head, Jimin looks at the spectacle taking place in front of him. There was no way he could’ve ever guessed this would happen. Jungkook and the female wolf – who is an alpha, Jimin knows by now – have barely taken off their clothes, when they turn into wolves, skin ripping and bones cracking. This process, Jimin will never get used to, no matter how many times he witnesses it.
+ 
 
-Without waiting for anyone’s word, the wolves lunge at each other, fletching their teeth and trying to bite the other. Jimin has only ever witnessed wolves fighting in the war years ago and it was brutal, but this right now isn’t any better. These are pack members. Aren’t they supposed to be looking out for each other?
+ 
 
-“How can this be the best-case scenario?” Jimin asks as Jungkook bites down on the female wolf’s leg, drawing blood. The female wolf howls, kicking Jungkook with one of her hind legs.
+Whenever highly esteemed guests came to visit the manor, Master Jungkook always took an interest in the girls. They would come in carriages accompanying their fathers and mothers in pretty dresses, cheeks pinched to crimson perfection. Jimin would stand back by the walls of the dining room, watching Jungkook speak sweet on them right under their parents’ noses, all charm and smile and lifted brows. They’d flutter their pretty eyelashes at him back, craning their neck to expose ever slightly more of their shoulders; just enough to not be labelled harlots. Master Jungkook would respond with an intense gaze and pointed mouthful bites of tender meat, eyes trailing from their red lips to their frill-covered breasts. Jimin felt guilty for noticing, but he didn’t have much else to look at when forced to stand at the family’s beck and call for hours on end while they ate into the night. Besides, his young Master was so obvious about it; Jimin did not know how none of the adults noticed.
 
-“When Jungkook wins, the other party will have to drop their complaints and never speak of them again. And if they still come after you, they’ll be punished for it."
+Then, at night, the girls would sneak out of the guest room to find young Master Jungkook. Jimin had come across them once or twice while cleaning the halls for the night and making sure the basins in the washrooms had clean water. The sound of the young Master secretly taking the girls to bed to impress on them his manhood would travel with the wood panelling; thudding, moans, and hushed whimpers wafting into the hallways while Jimin worked, his fingers shaking as he folded towels into their cupboards, feeling like he was accidentally intruding on the Master’s privacy. But still, he could not cover his ears, or he would be unable to finish his work.
 
-When. So the, surprisingly kind, wolf next to him is convinced Jungkook is going to win. Jimin is no specialist on wolf fights but even he can tell that Jungkook does have the upper hand. The female wolf has far more wounds that Jungkook, limping on one leg, whereas Jungkook was only bit twice and is barely bleeding from one of the wounds.
+Jimin would be lying if he said it did not affect him. When he heard the girls moan, his brain didn’t do enough to prevent him from imagining his Master thrusting, fucking, debauching—with that same stern face he usually sent Jimin’s way. The same look of disapproval. Jimin’s knees would turn weak, his face pale where he caught it in the mirror of the washroom, as he saw the walls shake with the effort of fornication. He’d close his eyes then and see his Master behind the pressed shut lids: tall, handsome, and brooding—over him, forceful, strong; all muscle. He’d clamp a hand over his mouth through a whimper, feeling himself clench and heat up at his imagination, his prick nudging needy against the fabric of his pants, his head recalling back to thoughts of bath water and the imprint of his Master’s hot manhood in his mouth.
 
-The fight doesn’t last much longer after that. Jungkook manages to overpower the female wolf and throws her on the ground, teeth sinking into her neck. Jimin closes his eyes and looks away. Everyone else is deadly silent for a moment and then they’re breaking out into cheers, the drum roll starting up again.
+Then came the anguish and shame, his pathetic body not ever worthy of someone like the young Master, who would never touch him, let alone look at him with any form of interest or more than the warmth of a finger trailing a speck of dust. Jimin hid in his sleeping chamber under the blanket some nights, when he could not sleep from the noise, biting the cotton of his nightgown and pressing a warm hand against his flush member, crying to himself as softly as he could, so as not to wake his parents. The tears streamed down in frustration, guilt, and pleasure, the image of the young Master’s cold eyes on him making him release into his sheets with barely any friction.
 
-Someone pokes him in the sides and Jimin opens his eyes, staring up at the wolf. “Look,” the wolf says, motioning to Jungkook with his head. “He’s fine.”
+He carried himself with much amplified shame the next day, more so than the girl of the week, who always seemed less spent and more lax in the clothing department as she sauntered around the manor the next morning, acting as if the young Master had all but proposed and offered to start their new, fruitful life together.
 
-Back in his human form, Jimin can tell that he indeed is fine. He sighs, shoulders sagging with relief.
+The only good thing about those situations was that the young Master, despite his flirtatious ways, or perhaps because of it, did not pay the girls much mind the next day, or any time thereafter. He had had his fill, and he made it abundantly clear, much to their chagrin. He was back to his bored, apathetic demeanor come breakfast time, poking at his food with disinterest. Oh, how the girls lamented this. How they would frown and sulk and send their doe eyes his way, vying for attention. Jimin was ashamed to admit he did not sympathize with them.
 
-Jungkook won.
+One day, while cleaning the young Master’s bedroom after a particularly fun night he had had with a girl from a southern county, he spotted something in his Master’s bed, tucked next to the pillows. As it was his duty to clean, naturally, he had checked up on the intrusion, wanting to make sure his Master’s bedroom was spotless, with not a thing out of place.
 
-He’s walking over to Jimin, one of his sides bleeding, the female wolf’s blood on his mouth. It doesn’t look like he cares though. He walks over to Jimin, the wolf next to Jimin patting Jungkook on the shoulder, and then looks at Jimin.
+When he pulled it out, he realized what it was. Jimin took the stay into his hands, admiring the rigid, boned structure—for around the rib area—and the softer, crinkled cups for the breasts. The material was soft; pretty. It was the whitest white he had ever seen, and he knew something so white and so soft could only come from somebody with a wealth of money and influence.
 
-“You okay?” he asks.
+He held it up against his own chest, trying to understand the workings of it. It was small, but so was he, the lace bits looking like it might fit snugly around his waist. Oh, how small their waists were, the girls. He imagined them putting these on in the morning, with a chambermaid to help them string it taut.
 
-Jimin blinks. He’s not. “A bit dizzy,” Jimin replies and averts his eyes when they land on Jungkook’s crotch. They had been naked with each other just this night but, if he’s being honest, he can’t remember much of it.
+“Admiring my trophy?” A brooding voice sounded paces away from him.
 
-Jungkook cups Jimin’s cheek, startling Jimin. He blinks at the alpha and wonders whether that is concern in his eyes.
+Jimin felt his blood run cold, dropping the stay as if burned. He looked up, his Master standing the the entryway of his room, one hand holding a cup of wine, undoubtedly stolen from the kitchen, and the other holding the door handle. His face was expressionless, his eyes mildly curious.
 
-“Lets go rest. We shouldn’t even be out here.” He turns to the wolf and says,” Thanks for keeping an eye on him.”
+“I’m sorry, I—“
 
-“Any time. The name’s Taehyung, by the way,” the wolf tells Jimin and then walks away.
+“Well, try it on, then,” Master Jungkook said, placing his cup of wine on his night table as he wandered further in, closing the door behind himself. “That’s what you were going to do, weren’t you?” He challenged, eyeing the fabric on the bed.
 
-Back at the cabin, Jimin asks, “Is this where you live?”
+“No, I...” Jimin swallowed thickly around nothingness, his head feeling light at the thought of wearing the garment. Never had he ever imagined...never should he ever have even touched something like that. Been on his Master’s bed. Soiled his sheets.
 
-Jungkook is wearing pants now, his side and mouth wiped, and is inspecting the wound in a mirror.
+“That’s the finest thing your filthy body will ever have near it, so take your chance before I retract my offer.”
 
-“Yes. We both will now,” Jungkook replies with a look towards Jimin.
+Not sure what else to do, Jimin reached for the stay with shaky hands, pulling at the strings of it and shuffling off the bed. Jungkook said nothing, just watching him fumble around as he looked down at the stay. He held it up near his armpits again, looking Jungkook’s way with heated cheeks.
 
-Jimin averts his eyes, taking a closer look at the cabin. The front door leads directly into the living room, where Jimin is sitting on a couch. It looks cosy and clean, which Jimin hadn’t expected from the alpha.
+“It goes under your shirt,” Jungkook drawled, lazily observing his poor attempts to fulfil the Master’s request.
 
-“Bathroom is on the left,” Jungkook says, now turned to Jimin, upper body still naked. “Kitchen on the right. You know where the bedroom is already and the other room is a store room for now.”
+Jimin yanked at his shirt, pulling it off over his head quickly and fitting the stay around his ribs the best he could. It was a little scratchy, not as soft as it had looked initially. Perhaps karma for him. It scratched at him as he wrestled it on, fitting snugly against his ribs.
 
-Jimin wants to argue with Jungkook. He wants to pick up their conversation from before and yell at Jungkook for what he did to him but he doesn’t have the energy for it. He’s on edge, antsy and for some reason he can’t stop thinking that he needs to be back in bed; fluff it all up, make it cosy and warm, and stay inside.
+“It’s clearly an undergarment,” Master Jungkook continued to mumble, scoffing. “Remove your pants.”
 
-Jungkook is in the middle of saying something but Jimin isn’t in the mood to listen. He gets up without a word and enters the bedroom, closing the door loudly behind him and crawls under the blanket. The message is clear. Do not enter.
+Halfway done with lacing it up his torso, Jimin hesitated again, eyeing his Master to gauge whether he was serious or not. His Master was unblinking, unyielding with his words. He fisted the hem of his pants carefully, holding his breath before pulling them down. The stay cups around his chest tickled against his skin as he bent over, kicking his pants off and exposing himself in the nude.
 
-This is how Jimin spends his first day in Jungkook’s cabin and as a new member of the pack: staying in bed all day while Jungkook leaves meals in front of the door for him. He goes inside once night has fallen, and Jimin bristles, even more so when Jungkook sits on the bed. Jimin is laying on his stomach so he can’t see it but he can feel Jungkook’s gaze on him.
+This had to be a new form of humiliating disciplinary action young Master Jungkook seemed fitting for his crime. He stared at the floor, unable to look his Master in the eyes as soon as he stood exposed, his skin prickling head to toe in goosebumps. All he could feel was the material of the frilly undergarment and the hammering of his lovelorn heart in his chest, rattling the silk and frills.
 
-“I know you want me to keep my distance but that won’t go well with the mating bite,” Jungkook says.
+“You can go now.”
 
-Jimin doesn’t respond but he also doesn’t object when Jungkook slips under the blanket and lays down next him, close but not touching him. The bed isn’t big and Jimin is occupying most of it, refusing to move even a centimetre, but Jungkook doesn’t complain. A part of Jimin is happy about the alpha being next to him. Jimin quenches that flame as soon it takes form. He will never forgive the alpha.
+Jimin looked up, his Master making his way towards his bed, resuming what he seemed to have been doing before spotting Jimin in his way. Jimin covered his bits the best he could, willing his flush to go down and his face to return to its normal colour as he tried to move. But every time the Master spoke, every stern word and piercing look, he couldn’t help but feel more worked up; more useless and unable to think. All he could do was swallow and breathe shallowly to mitigate the effects, but his palms remained clammy, his skin buzzing with heat.
 
-That’s what Jimin was at least hoping to stick to. He avoids Jungkook as much as possible but he can’t deny that gradually those times are reducing. The next days are spent in a similar fashion, Jimin in the bedroom most of the time and when Jungkook leaves, he steps out of the room, giving Jungkook the silent treatment but glad that the alpha still sleeps next to him.
+The young Master looked down his body from his bed as he realized he still had not left, over his flushed chest, his tense limbs, and down to his revealing nether region, all of which Jimin was trying and failing to cover with his arms and hands. He could feel beads of sweat run down his back, his knees trembling.
 
-They are the most confusing days of Jimin’s life so far. He’s glad he’s not dead but he’s mad about the situation he is in. He isn’t as mad as he used to be, Jimin notes one day, and then that makes him only angrier. There is no way he can ever forgive Jungkook. He shouldn’t ever do that but he can’t help but be touched by the alpha’s care and attention. He takes care of Jimin, feeds him, forces him out of bed when he’s in it for too long, talked to Jimin’s parents for him, and does those little things that make Jimin’s heart flutter.
+The young Master smirked, sending a ripple of shame through Jimin’s body as he spotted it. He panted where he stood, worrying his eyebrows and wishing he could be swallowed whole by the floor.
 
-It’s infuriating.
+“Did you perhaps hear us last night and wish it was you I was fucking into the mattress in a pretty dress?” Master Jungkook asked, voice discernibly flat and void of emotion as he stood still and stared at Jimin from his spot near the bed.
 
-The one night, maybe a week after Jimin got pardoned and started living with Jungkook, does he burst, flinging the plate of food that Jungkook set in front off the tiny table in the kitchen. Jimin is shaking, breathing ragged. The confusion is too much on that day and he’s ready to burst, too many conflicting feelings and too many unsaid words locked inside him.
+Jimin’s eyes widened in horror, cock twitching involuntarily as he clenched his thighs. Hearing his Master say that made him positively dizzy. He didn’t know what to do with himself. He could never lie to his Master, but was it worse to reveal his shameful, most lowly thoughts?
 
-Jungkook puts his spoon on the table and leans back in his chair, regarding Jimin with a cool look. Almost as if he has been expecting this. He remains silent as Jimin glares at him.
+“Well?” Master Jungkook pushed, crossing his arms, as if impatient. His tone was so deep; demanding. Jimin continued to suck in constricted breaths, staring at the floor and his toes. “Am I correct, Jimin?”
 
-“I hate you,” Jimin chokes out.
+“I-I would never, Master,” he mumbled out, chewing on his flimsy lie as he tried to make himself smaller. “I would never presume or even think to think of you that way,” he lied in an even hastier mumble, eyes anywhere but near the young Master. He curled forward, so ashamed he thought he might die. He thought he might have gotten away with it when he heard silence, but the young Master was nothing if not patient for the sake of humiliation.
 
-Jungkook’s eyes widen a bit and Jimin instantly regrets saying the words but a part of him is happy despite the pang of guilt he feels.
+“I don’t like liars,” Master Jungkook said calmly, his eyes still fixed on Jimin’s nether region. He walked forwards ever so slowly, reaching a hand out and pinching the invisible breast in the frilly stay cup, fingers closing around nothing but air and fabric. Jimin whimpered, despite nothing having happened. Then he flushed due to his weak, reactionary instinct. “Did you touch your tiny prick at night, whining at the thought of getting your Master’s cock?” Master Jungkook’s eyes were so intense, Jimin thought he might faint. His nipple tingled, despite being a good measure away from the Master’s actual fingers. It was as if he could feel the phantom of it from afar, touching him in theory. Only the young Master could do this, make his skin ripple with goosebumps without even touching him. Make him out of breath despite having available to him all of the oxygen he could desire. Control his every move with barely a mustered breath of forthright command. “Are you jealous of the girls, Jimin?”
 
-“I hate you so fucking much. How can you just sit here and live like everything’s normal when you’ve uprooted my whole life?”
+Jimin shook his head in horror, thinking of how the Mister and Mistress of the house would punish him if they knew. That he imagined himself out of his station. His place. What he imagined of their son. Their youngest. His dirty, lowly, clumsy self, in the deepest, darkest crevices of his mind.
 
-“What else should I do?” Jungkook asks, disarming Jimin with the question. “The sun keeps rising and setting, day turns into night and night into day. This world doesn’t stop for anyone. No matter what we do. All we can do is keep living, and you should too.”
+“I’m not—I’m not,” Jimin whined hastily, closing his eyes so his Master could not affect him anymore. He knew he was not worthy; that he disgusted the young Master and had no place holding fantasies akin to those of the pretty, high-born girls. He knew Master Jungkook might never want to look at him or speak to him again.
 
-“What?” Jimin scoffs and gets to his feet, too antsy to sit silently. “Here in your pack?”
+He heard the floorboard creak, Master Jungkook walking away towards the bed. Jimin dared to open his eyes and watched confused as his Master moved on top of the bed, crawling up to the headboard. He turned around, sitting with his legs lazily in front of him, and staring at Jimin expectantly, eyes half-lidded. His black hair almost blended into the stained wooden headboard, his eyes piercing and bright in the otherwise dim room. Jimin tried to spend a moment not focused on himself; how he was feeling exposed, vulnerable, and utterly spent. Master Jungkook was supposed to be his one and only care. His point of fixation and attention. The person he put all his love and effort into. Made his hands bleed for; served to the point of exhaustion.
 
-“Our pack.”
+“Are you going to show the girls how you can ride me, too?” Was said almost quietly into the empty room.
 
-“I’m basically a prisoner. I can’t meet my parents or my friends. Everyone out there hates me for killing one of you, and I’m stuck here. With you. A complete stranger. Apparently for all life.”
+Jimin looked behind himself out of instinct. Surely, Master Jungkook was not speaking to him. To him, lowly as he was. Surely, he was dreaming. He must have hit his head while cleaning. He must have fainted while going out into the winter air, trekking for food or wood. His father must have beat the life out of him for being the stupidest, most pitiful son in the world, until his blood ran red and thick down the sewage drains. Unequivocally, this could not be real.
 
-“No one out there hates you. It’s all settled. We are even with them. All you need to do is open your heart a bit and step outside the cabin, and you’ll see they’re great wolves. And with time you will be allowed to see your family. I promise you.”
+Jimin blinked, opening and closing his mouth as he held Master Jungkook’s gaze out of respect and the innate desire to serve. Jungkook regarded him back, though he seemed to be growing in impatience at the lack of response.
 
-Jimin shakes his head. “Wolves. That’s the thing. You’re all wolves and I’m a human, a freak according to your laws. And do your promises even mean anything?”
+“M-Master?” he tried into the darkness, confused and feeling like he was hysterical, having lost his mind entirely.
 
-“No one thinks like that anymore, not in our pack. And you’re a war hero. Everyone here respects you,” Jungkook says and gets to his feet. Jimin’s breath hitches with the first step Jungkook takes towards him but he remains where he is, staring up at the alpha when he stands in front of him.
+“Should I try a boy’s pussy too, Jimin?” Master Jungkook pressed, face unwavering as he spoke such lewd words, still holding Jimin’s gaze with those unforgiving eyes. Jimin faltered, taking a half step forward and sputtering as his learned desire to respond to everything his Master said died in his short-circuited throat.
 
-“I’ll make sure you meet them,” Jungkook whispers comfortingly. Jimin doesn’t know what it is but he starts calming down a bit. “You just have to say it and I’ll do everything in my power to make it happen.”
+Master Jungkook kept his stare cold and unwavering, lip quirked up ever so slightly as he reached into his pants and fished out his cock, thick and angry red from what Jimin could tell as it emerged from the weighty material. He could do nothing but stare, eyes following the curved, bulbed flesh as it bobbed out of his clothing.
 
-“Why don’t you fuck off then?”
+“Master,” Jimin whined, suddenly feeling so desperate and needy, his Master’s beautiful, handsome face observing him from so close. He had such a longing urge to be held by him, by his strong hands. To hear him say his name again. Just once. As if he was worthy of being in his Master’s mouth.
 
-Jungkook’s lips curl into a small smile which only infuriates Jimin.
+He willed his legs forward hesitantly, shuffling over to the bed, all the while Jungkook observed him carefully. He climbed on the bed, arms shaking. Master Jungkook didn’t move, waiting for him to get in place. Jimin swiftly situated himself onto Master Jungkook’s lower thighs, feeling his legs tremble, too. He wasn’t sure what to do. His imagination and his training only took him so far, but he was still ignorant to the ways of the world, of men. Of women.
 
-“I don’t regret saving you. I never will, and although this isn’t what you imagined, if you only open your heart to me, you’ll find you actually have nothing to hate about me. You can’t feel it but I can. We’re meant to be.”
+“Oh, M-Master, I...“ He forced himself to stop over-thinking, and reached his arms out to hesitantly wrap around his Master’s sturdy neck panting pathetic breaths between them as they were suddenly so much closer. It put his mind into overdrive. This was the longest his Master had gone without punishing him. Without handling him with a stern grip, a punishing shove, or a painful boot. And he felt drunk on it.
 
-Jimin stares at Jungkook, at a loss for words. He knows that dating and searching for a partner is all instinctual for wolves. They let themselves be led by their second natures and see what their chemistry with the partner is like but Jimin has no second nature. That’s why he can’t believe Jungkook. And he’s also not ready to forgive Jungkook just like that. So he chooses the most hurtful words he can think of and spits them into Jungkook’s face, “You should have just let me die that night. Or killed me. That would've been an act of kindness compared to what you've put me through.”
+Unable to stop the giddy feeling in his chest from taking over his body, he propelled himself forward and closed the space between him and his handsome Master, the only person he looked up to in this world. His lips landed on unmoving ones, his eyes closing blissfully as he allowed himself the most selfish, terrible indulgence of his life.
 
-The smile on Jungkook’s face vanishes and something flashes in his eyes. Jimin ignores it and goes to back to the bedroom.
+Then, he felt pressure around his throat, eyes flying open to see the terrible anger on his Master’s face, his Master’s hand closed around him.
 
-Jungkook doesn’t join him that night.
+“Don’t presume to put your filthy mouth on me,” Jungkook spat, wiping his lips with his shirt, as if on purpose, to make Jimin feel worse, clearly disgusted. Jimin panicked, then. How could he have done something so reckless? So revolting? To assume his Master would want him, of all people, touching him. Jimin, who was born from dirt and lived in it, hands and body sallow with serfdom and the pestilence of uncleanliness.
 
-
+“Forgive me—” he began in a choke, tears spilling down his cheeks at the betrayal of his station. He’d been selfish, thinking his Master would want him in that way. Of course he would not. Of course. He did not have the pretty, white skin the highborn, foreign girls had, with their pinched, rosen cheeks; their long, bouncy hair.
 
-Jungkook is gone by the time Jimin wakes up and leaves his room. That makes him feel dejected. Seeing the plate of breakfast ready for him, only makes it worse. It takes him over half an hour to eat his breakfast. He can’t concentrate on it, his thoughts always straying to Jungkook. He sighs when he hears voices coming from outside, wishing he had the guts to leave this cabin. It surely would make him a lot less miserable.
+He was nothing.
 
-He also hasn’t been able to sleep well, plagued by nightmares about the incident in the woods, and they only seem to be getting worse when Jungkook isn’t there. Jimin is glad Jungkook wasn’t with him this night but he’s also sulky.
+Master Jungkook shoved him back by his chokehold, flipping them over as he pushed Jimin backwards into the mattress, pinning his wrists above his head.
 
-A knock interrupts his thoughts, making him jump to his feet. Jimin waits for a moment with bated breath, wondering if he imagined it, but then there it is again, another knock. It’s not Jungkook. He just comes in because it’s his cabin. So it must be someone else, someone who’s probably looking for Jungkook because it can’t be for Jimin.
+“We both know you would look pathetic trying to ride me,” Jungkook whispered into his ear, venomously, his grip on his wrists unwavering. “You cannot cook, you cannot clean—so what makes you think you would ever be able to bring me pleasure?”
 
-Having stalled enough, Jimin goes to the front door. He inhales deeply and opens the door, blinking multiple times when he sees Taehyung stand in front of him, big grin on his face.
+Jimin failed to stifle a moan, jolts of arousal thrumming all through his body. He realized his Master must have figured out how cruel words left him pitifully breathless and wanton. He hated it, but was desperate enough to lay still and take it, aching for any touch; any scrap of attention. His Master’s spiteful words. To be punished for his insolence. Told he was worthless.
 
-“Hey!” he greets as if he’s meeting a childhood friend.
+“Master,” he mumbled dumbly, face turned away to the side as he let his body go limp, waiting for Master Jungkook to touch him anywhere, to move or grind down. His face was wet, tears blurring his vision as he tried to see and make sense of what might happen next. He was so overwhelmed he did not know what to do with himself. “Please, please...”
 
-“Hey,” Jimin replies quietly.
+“Shut up.”
 
-“Can I come in?”
+He felt one of his Master’s rough, large hands trace down his waist and thigh, gripping the flesh there. He moaned at the touch, but felt himself tremble, too. He had never been touched there. Only in his fantasies. Only by his lonesome, tucked away in his cot. And to think his Master would be the first to touch him there—
 
-Jimin nods and opens the door more to let Taehyung inside, closing it after him. By the looks of it, Taehyung is Jungkook’s friend so it should okay and safe for Jimin to let him inside.
+He turned his head away, biting his lip. Master Jungkook finally let go of his remaining wrist, only to stick two fingers deep into his mouth. Jimin gurgled, breathing out of his nose instead. His Master’s other hand resumed it’s groping, before he travelled a teasing finger down to the crack of Jimin’s ass cheeks, rubbing the sensitive skin there. Jimin whimpered, twitching under his ministrations. His Master’s eyes lit up in attention, eyeing him curiously.
 
-“How have you been?” Taehyung asks, sitting on the couch as if he’s done it hundreds of times. He probably has. Jimin takes a seat in front of him.
+“Have you taken anyone in before?” His Master demanded, halting his rubbing. Jimin almost bucked his hips up at the loss of friction. He could only assume his Master was speaking of how he’d speared the girls on his cock.
 
-“Okay, I suppose… What about you?”
+Jimin shook his head, salivating and gurgling dumbly around the fingers in his mouth. He’d never taken a cock. Not that there was anyone around to offer. Master Jungkook smirked, pressing the pad of his thumb against Jimin’s hole. And Jimin keened, twitching involuntarily.
 
-Taehyung smirks at Jimin’s awkward question but nods. “Fine. I’ve come to ask about your schedule.”
+“Good. I would not touch damaged goods.”
 
-“My schedule?”
+Before he knew it, the fingers in his mouth were pulled out and trailed down past his tiny, stiff prick that was weeping against his stomach, all the way down to his most private place, nestling wetly between the mounds there.
 
-“The head alpha intends on giving you some tasks soon. He wanted to know when you’ll be available and what you can do.”
+“O-Oh...”
 
-“Like outside the cabin?” Jimin asks slowly, brows furrowed.
+One finger breached in, slipping inside easily. Jimin covered his face with his hands to hide his blushing and so he would not see, almost biting the inside of his palms. He felt a second one join soon after, stretching him wider. His Master spit down. The squelching was horrendous, his bottom clenching around the moving digits inside him desperately.
 
-Taehyung smiles again. “One of these days, you will have to come out. I’m sure it works the same way in your village and I know you’re a hard worker. We pull our own weight here. We don’t laze around while others do the work for us. You’re most probably dying in here, so why not just go out. It’ll also make a better impression if you come out of your own volition instead of being forced to do so by the head alpha.”
+“Look at it, Jimin,” Master Jungkook commanded, making Jimin flinch. A hand slapped away his, before reaching for his hair and yanking him up by it, folding Jimin almost over himself as his back was practically lifted up from the bed and bent over. “Watch me fuck your pussy with my fingers.”
 
-The wolf doesn’t look unkind when he says those words but looks like he genuinely wants to help him.
+Jimin stared down, his Master’s thick digits disappearing and plunging in and out of his stretched entrance, wet with spit. The sound of his Master’s palm slapping against the skin of his bottom while his fingers copulated with him was sickeningly loud, and one glance at his Master’s face told him this was purposeful.
 
-Jimin has the decency to look ashamed. He knows Taehyung is right. The head alpha and the pack have been very lenient with him, probably to give him time to get adjusted to the mating and to the pack but he will have to step out one day. And it really would make a better impression if Jimin were to do that willingly.
+The stretch was erotic, but painful. Jimin’s fingers were so much smaller. Knowing his Master had his fingers lodged deep inside of him was enough to make Jimin almost faint, sweat gathering on his upper lip as he could barely do anything but whine and tremble, his scalp aching from the iron grip Master Jungkook still had in his hair.
 
-“What would I even do?” Jimin asks.
+“Looks like it’s ready for me, wouldn’t you say?” Master Jungkook suggested, admiring his work and finally letting go of Jimin’s hair. Jimin was tingling all over, mostly his scalp and his hole that Jungkook had just pulled out of. He lay there limp, chest swelling again at the thought of being used. He could barely breathe as he thought of his Master sheathed inside him, stuffing him full.
 
-“What did you do back in your village?”
+“Take me, Master. Anything—I want to give it to you,” he mumbled into the sheets, body limp as Master Jungkook touched his thigh.
 
-“Helped in the fields, helped my grandmother in the bakery, went fishing, hunting, repaired stuff. Anything I could do, I would.”
+“How cute that you’re offering,” his Master said sarcastically, scratching nails down his thigh as he smiled slightly off-kilter.
 
-“That’s great. We have all that work here. Though you probably won’t be allowed to hunt anytime soon.”
+He flipped Jimin onto his front with only one strong hand. Jimin’s stiff cock was trapped against the mattress, aching for touch or movement. He felt a heavy weight on his thighs, hands pressing down on the small of his waist. His Master’s hot tongue licked up his nape, making Jimin whine in satisfaction. His Master’s heavy, warm member rested between Jimin’s cheeks.
 
-Jimin expected that.
+Then, a stinging slap was delivered to his bottom, making it shake under the impact. A hand was on his head, shoving it down, and one pulling his hips up. The wetness around his hole was stroked by the fat head of his Master’s member, prodding at his winking entrance.
 
-“I can talk to the head alpha. Ask him to assign you to places where I am for the beginning. Start you off slow. How does that sound?”
+It was prodding and sliding until suddenly it was pushing in, wrestling with the tightness of Jimin’s panicking sphincter.
 
-For some reason, Jimin nods without hesitation.
+“O-Ow,” Jimin whined, hating himself for complaining when this was all he had ever wanted. He wanted to be good, to be the best. He bet the girls didn’t whine all pitiful and weak like him when his Master seared himself inside them. They always sounded so glad, so shameless. Lively. He had to be better. He needed to be better.
 
-Taehyung smiles brightly, slapping Jimin’s arm once. “Great. Looking forward to working with you.”
+He bit his lips together hard, digging his forehead into the sheets. Once the first part was in, his Master fed in the rest, stretching Jimin open so wide he almost forgot how to breathe. He gasped into the sheets, thighs trembling at the breach. His brain felt numb, his fantasies of this moment coming nothing close to how it was. He cried out into the sheets, trying to muffle himself as he reminded himself he was supposed to not cause a fuss. The stretch was painful but euphoric, snuffing out the last voice of reason and rational thought from his head. All he could do was lay there and cry out like some stuck pig, body spasming just at the feeling of Master Jungkook seated still inside his body.
 
-“Yeah,” Jimin whispers, and then adds, “Why are you doing this?”
+“How does it feel to serve your Master properly?” Master Jungkook asked, gripping his waist with a punishing hold, but his breath and nose moving almost gently up his neck.
 
-Taehyung looks puzzled. “Because you’re one of us now.”
+“G-Good,” Jimin gurgled to himself, no sooner had he said it had Master Jungkook begun moving, thrusting into his slick bottom while using his hands on his waist to slam them together.
 
-“Yeah but you’re the only one who came here to actively talk to me.”
+Jimin whined continuously, neck perched at an uncomfortable angle, but his body too weak to move, held down by Jungkook’s punishing thrusts.
 
-“Because you’re Jungkook’s mate and Jungkook is my friend, and just as I thought I can finally have some peace from Jungkook being infatuated with you, he’s out there sulking all day. And I like making new friends.”
+“You think this dirty, sloppy hole will satisfy me anything like the warm, velvety cunts from France?” the young Master commented.
 
-Jimin is unsure how to react to load of new information Taehyung gave him about Jungkook.
+“N-No...” Jimin whined. He wept silently into his hands, his doubts confirmed as he felt himself be rocked and used carelessly, his Master’s distaste having been made apparent. He just wanted to be good for him. All his moments dreaming of this embrace, hopelessly thinking his Master might find use and desire for him. That he could be better than those silly girls. The ones who just ran around and were loud. Rude. Careless with their things and demanding. He wanted to be better. Softer, sweeter, more obedient. And he wanted his Master to love it.
 
-“Also because I really don’t want Jungkook to go die,” Taehyung adds, interrupting Jimin’s train of thought.
+“Jiminnie’s sorry,” he cried through a hiccup, muffled by the sheets. Jungkook stilled behind him, eerily silent. “He’s sorry—he will try better,” he continued, well aware that ‘trying better’ wouldn’t make his hole any nicer for his Master or make him any less filthy and a worse alternative to the better pleasures his master could afford. There seemed to almost be hesitation behind him, even the hands on his back oddly light.
 
-Jimin raises his eyebrows questioningly. “You’re saying Jungkook would have really killed himself? Because of me?”
+Then, he was flipped over on his back again, his Master’s cock staying inside of him as he was turned around by a hand on his leg.
 
-Taehyung stares at him with a deadpan look for a second, looking as if he can’t believe how stupid Jimin is. Then he says, “Not downright committed suicide but he would have challenged the head alpha to a duel and fought until he either killed the head alpha and then maybe committed suicide or fought until he died. It looks like you still don’t believe that Jungkook likes you.”
+“You’ll just have to do,” his Master grunted, face expressionless.
 
-Jimin lowers his head, letting the remark go uncommented. He can’t think about it all now. It only confuses him more.
+He began thrusting again, this time caging his elbows on either side of Jimin’s head. Overwhelmed by their closeness, Jimin almost stopped breathing. He could feel tears running down the sides of his face, his mouth now salivating as his little prick was awakened again against his stomach, itching and hurting to release.
 
-“I’ll pick you up tomorrow, okay? I’m working the fields, so I suppose that’s a good start.” Taehyung says, leaving afterwards.
+“Master,” Jimin said breathily, happily, closing his eyes and letting the stretch of his Master’s cock bring him closer to the edge, his eyes locking with him.
 
-
+A stinging slap was delivered to his face for his insolence, his greediness. It burned. Now he was facing the wall, cheek burning a criminal red.
 
-Just like he promised, Taehyung picks him up the next day right after breakfast. Jungkook had spent last night back in bed but he had left before Jimin woke up, a plate of breakfast awaiting Jimin in the kitchen like usual. After Taehyung’s word from the day before, the plate looked differently to Jimin now. He can’t stop thinking about the work and care Jungkook put into providing for Jimin like this.
+But they were so close. His Master was still willingly leaning so close over him, that he could almost feel his breath dance over his skin in little rivulets. Decorate him in ripples at the ecstasy of the feathery-light touch.
 
-Jimin changes into his clothes, his parents having dropped them off a few days ago, and takes his first step outside in a long while, heart loudly beating against his chest. He wishes Jungkook were with him.
+Jimin reached his arms up blindly, his lips feeling cold and lonely, as he dreamed of feeling his Master’s warm lips on his again. Master Jungkook seemed to halt in a slight hesitation, watching Jimin practically demand something from him so blatantly. Jimin regretted it almost as soon as he had done it, his Master’s eyes hardening.
 
-“You’ll get some stares,” Taehyung says on their way to the fields, “but that’s only because you’ve been hiding in your cabin until now and everyone is curious how the mating with a human is going.”
+“Did you try to touch me again?” he sneered, yanking Jimin’s arms away to the side. Jimin yelped in surprise. “You take what I give you. I decide what you deserve.”
 
-Jimin doesn’t need to be told about the stares. He was already getting those from the few wolves he encountered on their way but that didn’t prepare him for the stares he gets when he arrives at the fields. Multiple wolves are there, most of them shirtless because it’s noon already and it’s hot, and a silence falls over them when they see Jimin. Some raise their eyebrows, others begin whispering, but all of them stare.
+“I-I love—”
 
-“They should be happy Jungkook isn’t here,” Taehyung mutters and hands Jimin the necessary tools. “You know what to do?”
+“Filthy pig,” Jungkook cut him off with, leaning his head down next to his shoulder as he thrust hard and fast, one of his large hands coming up to cover Jimin’s breathy mouth. Jimin lay still and took the punishing thrusts, body rocked back and forth violently until his Master stilled with a grunt, fingers clasping hard around his mouth. Jimin whimpered, feeling something hot and sticky fill him up. His own cock sputtered pathetically against his stomach, leaking over his navel and lower abdomen. His Master still had his head rested at the side of his nape, in the sheets, breathing deeply.
 
-Jimin looks around and nods, getting to work immediately. He’s glad it’s hard work. It requires little to no interaction with others and he’s easily distracted from thinking about Jungkook. He hears the wolves talking amongst them but unless Taehyung addresses Jimin, he doesn’t participate. He gets rid of his shirt halfway through his work, working only in his tanktop. The whistling doesn’t go unnoticed by him.
+“M-Master? Are you okay?” Jimin tried, small hands reaching up to support his Master’s shoulders with a light touch.
 
-Water gets passed around and Jimin is surprised when one of the wolves offers him a bottle. Jimin stares at the shirtless, sweaty alpha, stunned, wipes the sweat from his forehead and accepts the bottle.
+“Do not be obtuse,” Master Jungkook grunted, slapping his hands away. He pulled back, unseating himself from inside Jimin as well with a wet slip. The emptiness Jimin felt inside his body was overwhelming. Master Jungkook seemed to smirk at his disappointed expression. “Get out. I’m done with you.”
 
-“Thank you,” he mumbles, taking a few sips from the bottle without touching it with his lips, he hands the bottle back. He’s still thirsty but he doesn’t want to finish it in case the others haven’t drunk yet.
+Jimin, limbs turned jelly, breathed hard to himself where he lay, the softness of the sheets under him laughing cruelly at his sweaty back. He did not belong there. He was an intruder. He whimpered, his face still stinging as he tried to sit up with shaky arms.
 
-The alpha winks at Jimin when he hands the bottle back. Jimin blinks, head tilting in confusion. Taehyung shakes his head.
+“Did you not hear me?” Master Jungkook growled, already far away from him as he moved off the bed, reaching for his clothing and pulling them on. Jimin flinched. “Are you deaf? Or just unintelligent?”
 
-It’s dinner by the time they’re done, and Jungkook is waiting for him. Jimin doesn’t know what to do so he sheepishly follows Taehyung when he walks towards Jungkook.
+He frowned while he watched his Master dress himself, holding his arms over his chest and nether region, suddenly feeling extremely bare. His Master noticed, laughing at him.
 
-“Hey,” Jungkook greets Jimin softly when he reaches him
+“Oh, do not presume yourself shy now.” Master Jungkook leaned forward and grabbed his arm, effectively pulling him off the bed. Jimin let himself be yanked up, trying his best to will his muscles to keep him upright. “Were you not all but ready to be my consummated wife mere seconds ago? Love of my life?”
 
-It makes Jimin’s heart quiver. “Hey,” he greets back just as softly. Taehyung is acting as if he isn’t there.
+Jimin blushed, feeling nauseous with embarrassment. He had not meant for it to come out. It had just slipped. He had been so overwhelmed with it, so taken in the heat of the moment, that he had not been able to distinguish his brain from his vocal chords; his mouth from his thoughts.
 
-“I wasn’t able to cook today. Do you feel up to eating in the communal hall with everyone else?”
+Jimin kept silent, the strong hold keeping him up as he was pulled over the floor, barely able to walk to keep up as his Master moved towards a new location. His sweaty skin stung with the damp coolness he now felt moving through the room. Master Jungkook marched a shaky Jimin out into the hallway, heading south. Jimin whimpered, shuffling after him and trying his best to cover himself. The more they walked, the more Jimin realized they were headed towards the kitchens, Jimin able to feel his face and rear still globbed with streaks of release as they made their way there.
 
-Jimin looks down at himself, the dirt and sweat. “Shouldn’t I shower first?”
+“Master,” he breathed, still shaky and out of it, but knowing he would follow his Master anywhere; do whatever he asked of him. That would not, however, stop him from feeling petrified, close to freezing in place, his head hurting with the inability to protest.
 
-“It’s already late and nothing will be left by the time you’re done.”
+“Time to clean the dishes,” Master Jungkook ordered, making him stumble as they rounded a corner, the silent halls reminding Jimin that the estate was fast asleep.
 
-“No one cares about that,” Taehyung adds when Jimin still looks sceptical. “I’m going like this too. You can clean up by the well like everyone else.”
+“M-Master—” Jimin startled, more panicked now. He recognized their route, seeing familiar halls as they made their way down the stairs towards quarters he was more familiar with. Master Jungkook’s expression was neutral when Jimin caught glimpses of it, but his hold was hard and unforgiving around Jimin’s wrist.
 
-Jimin nods and walks over to the well where other wolves are lingering around, drinking and washing up. He’s hesitant about going there alone, more so because Jimin can feel that most of them are alphas, but he’s too proud to ask Jungkook or Taehyung to accompany him. So he swallows his discomfort and pulls up a bucket of water for himself.
+Sooner than Jimin would have liked, they rounded the door to the kitchens, close to where his parents rested in their cot. Jimin clasped a hand over his mouth as he gasped, his mind whirring as he realized his naked state and the loud banging of Master Jungkook shoving the kitchen door open.
 
-Jimin cleans his hands first and then splashes water into his face quickly. He would like to be more thorough with his washing but he can feel someone’s gaze on him, so he stops. It annoys him. Jimin should probably ignore it and leave because he’s hungry after so much work but he wants this to be the last time someone stares at him. That’s why he looks up at the alpha defiantly while a few others watch with interest.
+“Were you not trying to be better?” Jungkook asked, sensing his hesitation. Jimin knew he was used to unwavering obedience. Jimin had given him that. He wanted to always give him that. But here... “Were you not trying to be your best? I’m not happy, Jimin.”
 
-“You wanna say something?” Jimin asks.
+“Master,” Jimin pleaded, one of the only times he had done so. He could feel his chest constrict in apprehension, his hands going clammy. His naked form was on display, soiled body parts and all. He could barely breathe, watching his Master watch him with crossed arms, as if waiting for something. He glanced over to the closed door of the servants’ quarters, unable to look away or focus on his Master wholeheartedly.
 
-Some of the wolves give low ‘ooohs’ from them as if egging them on to fight but Jimin ignores them. The alpha’s grin widens and he leans down until his face is close to Jimin’s, whispering in a low voice, “You know how you look?”
+“You do not want Mommy and Daddy to know you’ve serviced me? Would they not be so proud of you, Jimin?” Master Jungkook challenged, giving him a pitying look. Jimin looked to the side to check for a cloth or towel to cover himself with. He blushed furiously, feeling his eyes wet again.
 
-Jimin just stares at him with narrowed eyes.
+Jimin shook his head hard, holding it low so as to not aggravate his Master any further.
 
-“Like a pretty omega.”
+“No? Would they sigh and think, ‘even my dumb, little Jimin would not be stupid enough to turn himself into a household whore’?”
 
-Jimin inhales sharply, turning beet red for some reason. He feels humiliated, and the alpha’s satisfied smirk doesn’t help. He wants to say something, cuss the alpha out or even punch him, but before he can do any of that, someone steps up behind Jimin, wrapping an arm around his waist.
+Jimin hunched his shoulders as he cried, the cruel words expected but hitting him harder somehow now, for whatever reason. He fought the urge to crawl to the young Master’s feet, settling for throwing his face into his hands instead, shoulders shaking as he tried to balance his shame with his sorrow, alongside the strings of fear and dormant arousal that licked their way up his spine.
 
-“Fuck off,” Jungkook growls.
+“Jungkook.”
 
-The alpha raises his hands in a defensive manner, and all of them leave but the smirks are still plastered on their faces.
+The both of them turned at the sudden new voice in the dim kitchen, shocked still. Master Namjoon stood at the turn of the corridor, face hard as he only eyed his brother, unwavering even for a moment. Jungkook, for the first time Jimin had observed him, looked surprised—apprehensive, even—as his older brother breached the scene, stepping purposeful steps into the room.
 
-“You okay?” Jungkook asks once they’re gone.
+“Mother’s asking for you,” Namjoon simply said, having yet to blink as he fixed his gaze upon his brother. Jimin supposed he was grateful Master Namjoon was not looking at him. He did not know if he could handle anyone else seeing him in this state. Seeing what had become of him.
 
-Jimin nods. He can still feel some heat in his cheeks but the embarrassment is replaced by a tingling feeling caused by Jungkook’s arm around him. Their alpha protected them.
+“No she isn’t,” Jungkook shot back. Jimin just shifted his weight from one leg to the other, his skin itching as Jungkook’s and his release dried with his sweat, his tears also pricking a tightening dryness against his cheeks and chin.
 
-Jimin blinks. Then shakes his head. What an odd thought to have.
+“You want to test that theory?” Namjoon pressed, voice deeper now. Jimin could see the hesitation in young Master Jungkook’s body out of the corner of his eyes, though he forced himself to keep his gaze low, now resting somewhere near Master Namjoon’s feet.
 
-“Shall we?” Jimin asks, turning to Jungkook.
+An angry grunt ruptured into the room, Jimin flinching at the loudness of it. Namjoon did not waver. Following soon after, Jimin heard the telltale sound of Master Jungkook storming out of the kitchens, leaving behind a painful, awkward silence. Jimin swallowed dryly, wringing his fingers together in front of him. Master Namjoon must have seen him by now. Must have looked at him. Seen the mess he was, the disgrace. The wickedness he’d done.
 
-Jungkook nods and leads the way. Jimin slips his shirt on, Jungkook’s hand falling from his waist. The spot feels cold after the loss of Jungkook’s touch. The silence that ensues after Jimin enters the communal hall is worse than when he went to the fields. Wolves nudge their partners, point at Jimin with their utensils and stare openly. The fact that Jungkook squares up to his full height and protects Jimin from the gazes as much as possible with his body is huge a relief.
+A gentle hand rested on top of his head, patting his hair. The cold fingers run through his sweaty, warm scalp. It was soothing. Jimin flinched out of habit, before relaxing into the touch.
 
-Jungkook guides him to the buffet, giving him a plate, while Taehyung follows obediently. Jimin is glad to have Taehyung at his back. He doesn’t expect to be attacked but he supposes that if others see Jimin be treated normally by at least one wolf, they will follow suit. Jimin expects to sit at an empty table but instead they sit next to two other wolves.
+“Come on, Jimin. I’ll clean you up.”
 
-“Finally out huh?” one of them asks Jimin with a bright smile. Jimin is too stunned by his good looks to speak. “I’m Seokjin.”
+ 
 
-Jimin clears his throat and sits next to Jungkook, and if he’s sitting a little too close, well, no one can blame him. “Jimin.”
+ 
 
-“Yoongi,” the second wolf says around a big bite of his food.
+ 
 
-“Yoongi is one of the healer’s in the pack,” Jungkook explains. “He and Taehyung are mates. Another friend is currently travelling.”
+*
 
-“He’s a shy one,” Taehyung says with a big grin next to Yoongi, to which Yoongi responds by elbowing him in the side.
+ 
 
-“Not shy. Just don’t like talking so much shit.”
+ 
 
-Jimin smiles at the casual talk, getting more relaxed. At least he won’t be getting indigestion today. He’s not confident enough to contribute to the conversation, so he listens quietly, trying not to think too much.
+Namjoon used a gentle hand to help Jimin into his personal bath on the second floor. The smaller did not object, allowing Namjoon to guide him in and use the lukewarm water to clean him. The boy’s face was a little vacant; a little out of it. Aloof. Namjoon hoped some gentle touches might bring him back to a normal state. He was docile, but not out of petrification. He seemed almost calm; resigned to swimming in his nakedness and feeling any touch that came his way.
 
-“We’ll be in the kitchens tomorrow, I heard,” Seokjin suddenly says, addressing Jimin.
+Namjoon’s eyes trailed down Jimin’s figure as he washed him up, running the cloth over the reddened, harshly grabbed parts of his pale skin. When his eyes got to Jimin’s backside he blushed, averting his gaze ever so slightly to give him his modesty. He tried to clean him as best as he could, avoiding that area until it was all that was left.
 
-Jimin swallows his bite and shrugs. “I don’t know anything about my schedule.”
+Raw and slick. That was etched in his mind. When he’d first observed it in the kitchen. It had been relatively apparent what had transpired. At least physically. Namjoon had heard suspicious sounds from outside in the halls as he’d wandered to retire back in his bedchambers from his study. Seeing faint figures moving down the hall after a scuffle, he’d hurried to survey the scene.
 
-“It’s not fixed yet,” Jungkook explains, giving Jimin a large piece of meat from his own plate. He does so naturally that Jimin is a bit confused and a bit flustered. “Head Alpha said to see how you’re doing today and, if you feel up for it, let you decide if you want to do it.”
+“Master,” Jimin said, in a voice so subservient and willing that Namjoon had to pull his hand away to feel less weird about cleaning him up.
 
-“I’m not much help in the kitchen, to be honest,” Jimin says apologetically.
+“Alright, Jimin. All done,” he said with a smile, patting him on the head again. He tried to be gentle, forcing his voice to be equally so. He wanted Jimin to know he was trustworthy. A good man, compared to his little brother. That not everybody in that household was out to get the small servant. “Are you hurting?”
 
-“How about pups?” Taehyung asks
+Jimin nodded solemnly, but it was a resigned hurt, rather than a sharp one. A peculiar hurt.
 
-It gets quiet on the table for a moment. Jungkook, who was leading the spoon to his mouth, freezes while something inside Jimin stirs. He notes how everyone throws Jungkook a glance and looks at the alpha too. Jungkook takes the bite into his mouth and blinks at Jimin.
+“Where are you hurting?” He urged, not sure he wanted to hear the answer.
 
-“I mean, if you’d like, you can also help at the nursery. That’s where I am when I’m not needed for alpha stuff.”
+Jimin took Namjoon’s hand in his, guiding it down his clavicle, until it landed on his chest, right over his beating heart. Namjoon stirred uncomfortably where he sat bent over the bathtub.
 
-“Tae is one of the few alphas who prefer being in the nursery,” Yoongi chimes in.
+“It hurts?” He asked skeptically. Jimin nodded gravely, movements slow and dazed.
 
-“Whereas Yoongi is one of the rare omegas who’d rather die than go there,” Taehyung counters with a smitten smile on his face, leaning in close to Yoongi to nuzzle his cheek. Yoongi doesn’t react to it other than looking a bit pleased. Jimin is a bit embarrassed by the public display of affection.
+“What about your...what about...” Namjoon made a gesture to his behind, feeling himself go even redder. Jimin shook his head sincerely, clutching Namjoon’s hand tighter. Namjoon almost jerked in surprise.
 
-“I’m okay with… pups,” Jimin says after the Taehyung is content with nuzzling Yoongi, a little hesitant to say the last word. That’s not what they call children in his village.
+“Now when I go to bed, I can still feel him with me.”
 
-“Then nursery it is.”
+He stared at the still water around Jimin’s still body, the curves of his thighs and ribs bending under the water and distorting him. Jimin’s chest was flushed.
 
-“No fair. When do I get to work with Jimin?” Seokjin throws in.
+“You like that?” Namjoon asked, sceptical. He tried to use his gaze to pry open Jimin’s mind, looking hard into his eyes and near his mouth, waiting for something to betray his words. For the real truth to reveal itself, or for an unmistakable detail to come forward.
 
-Jimin watches them, a bit overwhelmed, a bit lost. By the time they finish their meal, Jimin is glad to finally be on his way home so he can take a shower.
+“My Master is everything to me,” Jimin confirmed, as if Jungkook had trained him to respond that way himself.
 
-“You alright?” Jungkook asks on the way. He’s walking next to Jimin, Jimin content with how it is.
+“R-Right...” Namjoon said, accepting it for what it was, but unable to set aside his large helping of worry and distaste. “Next time he...next time Jungkook, uh—tries to do something unsavory...you let me know.”
 
-Jimin doesn’t know how to feel about how well Jungkook reads him but he certainly is pleased with the attention for some reason.
+“Why?” Jimin asked, eyes genuinely curious. As if they had not witnessed violence together. Abuse of power. The knowing marks and the weird, obsessive behaviour. The shift in Jimin’s demeanor. Like they were innocent to the ways in which he’d been treated.
 
-“I’m just… confused.” Jimin decides to be truthful. “Everyone is either nice or at least open. I guess, I just expected more hostility.”
+“That is an order, Jimin,” Namjoon settled for saying, hating himself for it as soon as he did so. Jimin’s eyes widened, clearly computing the reconfiguration of Namjoon’s status in his head. The hierarchy reimposed on him even when Namjoon had worked so hard to break it down. He had not meant it to be hurtful. But things were getting out of hand. Jungkook was out of hand. Jimin needed to have an out in case things got too bad. He could not directly grab Jimin from Jungkook, because the younger would throw a fit that was fit for a revolution. He could, however, ruin Jungkook’s hold around his newfound ‘toy’. Little by little, with careful and purposeful presses of Jimin in the right direction.
 
-“Head Alpha forgave you. Being hostile towards you is equal to disobeying him. And I won the duel. That makes everything even.”
+“Yes, Master,” Jimin said, his voice more habitual sounding than before. And Namjoon would take that over another event like this again any day.
 
-“So everyone forgot about… it? Just like that?” Jimin asks, disconcerted.
+ 
 
-“We didn’t forget. We just moved past it. You’re part of the pack now.”
+ 
 
-Jimin has heard these words so many times but still has difficulty believing them.
+ 
 
-“It’s really this easy?”
+*
 
-“This is how we work.”
+ 
 
-Jimin remains silent after that, mulling over Jungkook’s words. Jungkook lets Jimin shower first, and Jimin spends that time thinking about the day. Pack life isn’t so bad. It’s almost the same as living in the village, and with the pack members being rather open towards him, Jimin doesn’t have much anything to complain about. He feels like he actually has a shot at a good life here.
+ 
 
-Then there is Jungkook.
+The next time Jungkook fucked Jimin he was not so gentle, but Jimin was also not so scared. Jungkook saw it in his face, how accepting and resigned he was. No matter what Jungkook did, what he gave him or took from him, Jimin would look up at him with that look on his face that made Jungkook’s insides burn with desire alongside a spurring for him to act worse. Begging for him to tighten the noose of control until it was choking; deadly.
 
-Soft, gentle, caring Jungkook.
+“You’re not presentable,” Jungkook spat, grabbing a chunk of Jimin’s hair and holding him up by it so that his neck was awkwardly bent. Jimin’s eyes were half-lidded in pleasure and a deep seated acquiescence, all his muscles lax as he laid himself bare for Jungkook to take, his face almost serene with a childish longing.
 
-Strong, reliable, nurturing Jungkook.
+Jungkook fucked Jimin hard, grabbing a shearing knife he’d kept by his night table for a few weeks and running it along his grip, a small chunk of Jimin’s hair coming off as he cut it with a grunt. He was agitated, for some reason. And Jimin’s serene expression and obedience made it worse.
 
-Handsome, fit, sexy Jungkook.
+“I’m sorry, Master,” Jimin whispered, almost smiling up at him through the hairs that rained down on his face and around him on the sheets.
 
-Jimin shakes his head, switching the water from warm to cold to calm down. Since when did Jimin only think of positive things when he thinks about Jungkook? Truthfully? He has never had anything against Jungkook. Hell, he was even interested in the alpha before all this happened but it was rather physical and now he’s suddenly married to Jungkook.
+“Did Master Namjoon say something to you?” Jungkook pressed, trying to get to the root of his frustration. He scanned Jimin’s body as if he would find the answer there. “Has he ordered you to do something?” He kept thrusting, but stilled after a few seconds, trying to make his servant speak. He was bad at conversing or courteous human interaction, so this was already a challenge for him. “You can tell me,” he added, sickeningly gentle for his usual demeanor. He would have to be if he were to efficiently pry the clamming boy open enough to get his secrets out of him. To give him dirt on his brother, of whatever stupid games he was scheming. Jungkook would win them, of course. Jimin was his game, and Namjoon wouldn’t know how to play him even if he tried. “Whisper it to me, Jimin. That’s an order.”
 
-Shit, Jimin is married to Jungkook. Mating is equal to marriage, only even more intense.
+Jungkook leaned down over the boy, risking the smaller’s clammy hands wrapping around him and his face getting uncomfortably close to get the ripe and ecstatic pleasure of Jimin speaking everything Namjoon had ever said to him right into his ear, filling him up with the insolence; the betrayal, and the meddling that had been planned and intended right under his nose.
 
-Jimin has a small panic attack after that realisation. Jimin is married. To a man he doesn’t know but he’s married. Oh damn.
+Jungkook had coaxed it out of him, sweet and prying as a child looking to hold a toy, but he had never promised Jimin compassion or forgiveness for sharing the tale of betrayal, willing as he was.
 
-Jimin startles when he hears two knocks on the door.
+And so that was not what Jimin found waiting for him after his last breath of explanation, either.
 
-“You okay?” Jungkook asks from the other side of the door.
+ 
 
-Shit. That’s his husband.
+ 
 
-Mate, something inside Jimin chants and he gasps at that thought.
+ 
 
-“Jimin?” Jungkook sounds worried now, ready to break in the door.
+*
 
-“I-I’m fine. I just have to put my clothes on.”
+ 
 
-“Okay. Call me if you need anything.”
+ 
 
-“Yeah.”
+The morning found Jimin out on the grounds by the horse stalls, crying. Three of their animals—his animals—had gone missing through the night. Most telling was a trail of white feathers, following a beaten path down to a river, streaks of blood murking up the soil underneath it until the river bank. He cried in earnest, gasping and wailing as he scooped up the feathers, lamenting his dead goose, and trying not to think on the open stall and the broken leash in its periphery wake.
 
-Jimin hurriedly dries himself off and puts his clothes but leaves the bathroom rather hesitantly. He will have to face Jungkook now and he doesn’t know if he can do that. He stalls in the bathroom door, wondering what to do now, when Jungkook suddenly appears in front of him. Jimin flinches, staring up at Jungkook wide-eyed.
+He considered Master Jungkook’s angry dog—the bullish, boorish one always growling and jumping around the outhouse—who was trained for hunting. Were he to find it quietly satiated and with a bloodstained mouth at the helms of the property, he would not be surprised, and he would also not reprimand it. But that did not mean it did not hurt. That he was unable to feel the loss and grief, just because he believed he deserved it.
 
-“Jimin, are you sure you’re alright?”
+ 
 
-Hearing and seeing the worry on Jungkook’s face does things to Jimin he never thought possible. It’s like a storm is raging inside of him; happiness, content and confusion creating a turmoil in him.
+ 
 
-“I am,” Jimin says a tad too loudly and rushes past Jungkook. He immediately regrets his outburst, embarrassed by it, but it’s too late now anyway.
+ 
 
-Lost about what to do, Jimin readies himself for bed even though he isn’t tired. He’s worked hard today so he hopes sleep will come before Jungkook is done. His wish doesn’t get fulfilled though. He still wide awake when Jungkook enters the bedroom. Jimin keeps his eyes firmly closed and snuggles into the blanket, back towards Jungkook. Jungkook crawls under the blanket with him, no doubt shirtless again. Like every other night too.
+*
 
-It’s quiet for a long while so Jimin turns around to check on Jungkook before getting for a glass of water. He freezes when he’s met with Jungkook’s open eyes and smug smile.
+ 
 
-“Are you going to run away again?” Jungkook asks, voice low.
+ 
 
-Jimin thought the alpha might be upset but he looks excited instead, almost like a child happy about playing a game of catch. Almost like a hunter enjoying running after his prey.
+Namjoon and Jungkook were the only two attendees showing for supper anymore, and even they were reluctant to come. Did their stomachs not growl and their eyes not ache from seeing the same four walls of their room every day, they might not have made the trip downstairs to mingle in the dining room. Considering neither of them were particularly excited to see the other, it only made the meal that much more tense and unnerving, amplified to the hundredths when Jimin walked into the room to take their plates away after their satiation.
 
-Jimin gulps, remembering the lesson about how alphas are predators. He remains silent and shakes his head.
+When the servant realized it was only the two young Masters in the room, he quickly scurried back out as soon as he had the plates in hand, face looking pale as a ghost. Something about him had looked different, too. Namjoon glanced at Jungkook, whom he had not spoken to the entire meal, training his eyes onto his face, then his collar, and trailing down to his arms and his one fisted palm. Namjoon swallowed hard, feeling overly full from the meal he had taken but three bites of.
 
-Jungkook supports his head on his hand and fixes Jimin with his gaze. “What’s wrong? You’re weird today.”
+“Jungkook, look at yourself,” Namjoon started in a whisper, the words borne and dying in his mouth as he forced his lips to move. “You’re obsessed,” he croaked finally, eyeing what looked like chunks of a few locks of hair in between his little brother’s fingers. “You’re unhinged.”
 
-“I’m not,” Jimin whispers defensively. Not even he believes himself.
+“I’m perfectly hinged,” Jungkook said calmly, dropping the hair onto the table with little preamble, and making to take a sip of wine from his cup. From his father’s cup.
 
-“Want to break another plate?”
+Namjoon took the napkin off of his collar, placing it gently down on the tablecloth while observing the way his brother sat in thought. He had never felt so unsettled by just being in his presence.
 
-Jimin bristles and glares at Jungkook disbelievingly.
+“That’s not a word,” Namjoon said, placing his hand down on the table for leverage. It used to mean that his words had weight. At one point, Jungkook had respected him, to whatever extent. His age and his position had meant something. Now, with their parents aloof, depressed, or bathing in degeneracy, he did not have the family armour to fall back on. It was just Jungkook’s will against his own. Just his brother teetering on the edge of a cliff he could not come back from and Namjoon feeling powerless to stop it.
 
-“Relax,” Jungkook breathes and ups Jimin’s cheek with one hand, thumb brushing over his cheekbone. “You can if you want to, and yell too.”
+“And you’re no doctor,” Jungkook rebutted, raising his eyebrows. He was amused. Namjoon bristled, but kept his mouth shut, not sure what he could possibly have squeezed out of his throat to talk sense rather than anger into his devilish little brother.
 
-“You’re weird,” Jimin mumbles, regret and shame audible in his voice.
+He had used to think it was only entitlement. The young soul spoiled by his mother’s attention and the riches lavishing everything from the threads in their garments to the floor they walked on. But now, sitting opposite Jungkook in the dim room they used to sit in as a family together, Namjoon felt apprehension. Disgust. Stupor. Jungkook seemed to grow annoyed with his staring in silence, slamming his cup down on the table.
 
-Jungkook chuckles. “Maybe but if that’s what helps my mate deal with the current situation then I’ll happily forfeit some plates.”
+“If you pester me or my servant one more time, or try to get involved,” Jungkook started, leaning closer to Namjoon over the table. A few locks of his long, dark her fell forward into his face as he did so. Namjoon kept his gaze, unblinking. Refusing to show fright. “I will ruin everything he loves until he is miserable, save for the select morsels of attention he gets from me.” Jungkook, too remaining unblinking, his eyes looking like giant, black vortex pools of emptiness. Namjoon watched his rigid mouth move around his words, his face betraying no emotion one way or another. “And then, I will ruin him. I will break him.”
 
-“And your life too, apparently,” Jimin says without thinking. It’s then that he notices how bothered he was about how easily Jungkook is willing to give up his life for him.
+Namjoon frowned, feeling his palms clam up with sweat. His chest burned with objection. With distaste and disarray at Jungkook’s complete lack of self-awareness.
 
-“If that’s what you want.”
+“You already have,” Namjoon told him. Jungkook seemed to consider what he had said for a second, for the first time since they were younger looking like he was listening to what Namjoon was saying and not having it go in one ear and out the other. Jungkook raised an eyebrow, smiling to himself. Namjoon felt a violent repulsion ripple through him.
 
-“It’s not!”
+“And he likes it, the dumb mutt,” Jungkook confirmed, stroking the tablecloth with his index finger carefully. He seemed to muse on that with elation, each scratch of his finger against the fabric of the cloth rendering Namjoon more and more on edge. “Say,” the brat continued, looking up at him with inquisitive eyes that mimicked imploring curiosity. “I’m wondering if Father would be interested in knowing why you haven’t found a wife to bear a child yet,” Jungkook mused over the edge of his cup as he took a sip, continuing to play with the pattern on the tablecloth with his fingers.
 
-Jimin surprises Jungkook and himself with his loud protest, hand raising to clutch at Jungkook’s. He’s angry and appalled by how Jungkook smiled when he said those words.
+Namjoon swallowed hard, tightening his hands into fists under the table.
 
-“Stop talking like that,” Jimin hisses and turns his back to Jungkook. Their first normal conversation and Jungkook had to ruin it like that.
+“And why would that be, Jungkook?”
 
-Jimin hears some rustling behind him, Jungkook inching closer until he’s almost engulfing Jimin with his body, his lips at Jimin’s ear.
+His little brother quirked his lip up even more, seeming enthralled by the unwavering attention he was receiving.
 
-“I’m sorry. Don’t be mad, please,” Jungkook pleads breathily.
+“I think it’s pretty obvious why you’re so insistent on sticking your nose into my sex life,” Jungkook laughed, shoving his half-full wine glass over so that the contents spilled out over the tablecloth, running in a splattered but straight line, soaking right over to Namjoon’s side, before dripping down onto his trousers. “Well? Am I right, you impotent freak?”
 
-Jimin closes his eyes and bites his lower lip. Jungkook sounds so needy and sweet, and maybe Jimin likes Jungkook trying to make it up to him a tad too much. He likes the attention but he would never admit that.
+Namjoon, having had more than enough, promptly got up and left the room.
 
-Jungkook’s hand hovers over Jimin’s side but seemingly discouraged by Jimin’s lack of response, Jungkook goes back to his side of the bed and whispers a quiet good night.
+ 
 
-
+ 
 
-Life gets more peaceful for Jimin because something changes between the two of them after that night. Jungkook becomes a constant in his life. He stays for breakfast and has it with Jimin, sometimes in silence, sometimes over a pleasant conversation about nothing in particular. With Jungkook as an active part of his life, life in the pack becomes easier for Jimin. Jungkook is a great and knowledgeable wolf to have at his side, and the more Jimin gets to know about him, the more he’s alright with living at Jungkook’s side.
+ 
 
-He hasn’t forgiven him but he can look past that incident most of the time. It’s not all great, and some days Jimin refuses to speak to Jungkook at all, but with Jungkook’s help, Jimin becomes a constant in the pack. Jimin doesn’t fit in perfectly. It’s like something is stopping him from accepting this new life and it’s not all Jungkook.
+*
 
-Jimin doesn’t mind the changes. He actually likes it but he still resists it. He still can’t forgive the circumstances that lead to Jimin being a part of the pack, and Jungkook knows it too. It shows in moments when Jimin is laughing at something Jungkook said and suddenly he stops. Or when they’re having a nice conversation and Jimin closes himself off out of nowhere.
+ 
 
-“You’ve been working hard,” Jungkook says to Jimin one evening when he’s picking him up from the fields again.
+ 
 
-Jimin has befriended some of the wolves there by now, even gets along with the jerk who called him an omega.
+ 
 
-“It’s work,” Jimin says. “It’s nice. Keeps me from going crazy.”
+“Fetch me my whiskey, Jimin,” young Master Jungkook said from his perch in the armrest near the fireplace.
 
-“Well, sorry to inform you that you won’t be working tomorrow,” Jungkook teases him. Jimin rolls his eyes. “I have a small trip planned for us.”
+He had been different lately, but Jimin could not pinpoint exactly how. All he knew was that he couldn’t remember the last time he had served the Master or Mistress of the house. Young Master Jungkook seemed to seek to monopolize his time, now existing at every turn Jimin made as he tried to fulfil his duties around the estate. It was not like it was out of character for him to put his Master’s requests above all the other ones. He could deal with reprimanding from his parents. But Jungkook had been more covert about it before. Now, Jimin almost lived at Jungkook’s heel, responding only to his voice. His head was dizzy with the attention. Giddy, distressed, and elated all at the same time, not sure why the shift had happened, or when, but relaxing and finding comfort under the stern holds or words flung his way.
 
-“What trip?”
+“Yes, Sir,” he said with little preamble, making to head for the drinking cabinet. A sound behind him stopped him in his tracks, turning around at Master Jungkook’s voice.
 
-“It’s a surprise. We’ll be going after lunch. I still have work before that but you’re free.”
+“But,” the young Master clarified. “I do not think your legs are working very well right now. How very unfortunate.”
 
-Jimin tries to get the answer multiple times that night but nothing can make the alpha budge or slip up. His smug and self-satisfied smirk doesn’t help reduce Jimin’s curiosity at all.
+“What?” Jimin asked, looking down at his legs questioningly. There seemed to be working fine. Did Master Jungkook know something he did not?
 
-The next morning when Jimin wakes up, he’s laying close to the alpha, the alpha facing him. Jimin has noted with calm acceptance that this has been happening more and more. While in the past there used to be a lot of space between them and Jimin was mostly turned away from Jungkook, now they’re always facing each other and sometimes Jimin wakes up with his face only inches away from Jungkook’s. Jimin slowly inches away from Jungkook and leaves the room quietly.
+Just as he thought that, Master Jungkook got up from the chair, walking over in his direction slowly, before kicking behind Jimin’s knees with great force. Jimin buckled, tumbling to the floor, his arms catching him before he planted face first. He looked back, his master seeming pleased with himself. Suddenly, a heavy boot pressed on his back, Jimin forced fully onto his hands and knees. The feeling was familiar, and Jimin let himself be pliant and ready, unsure of his direction but ready to take it.
 
-Waiting for Jungkook to wake up is boring so he starts preparing breakfast already, done in time for the alpha to step out of the room.
+“S-Sir?” He asked.
 
-“Someone’s up early,” the alpha comments in a husky voice, rubbing the sleep from his eyes. “Excited?”
+“Now, fetch me my whiskey,” Master Jungkook just said, pointing to the cabinet.
 
-Jimin sticks his tongue out at Jungkook which only makes him laugh. This has also become a part of their lives: Jungkook teasing him regularly.
+Jimin hesitated for a miniscule fraction of a second, getting used to the texture of the wood under his hands and the hard surface toying with his knees.
 
-The alpha leaves soon after, promising to be back around lunchtime. Jimin has never been very patient but today he’s even worse. He keeps on checking when Jungkook will come back and can’t sit still for more than a few minutes.
+Then, he crawled.
 
-It’s because it’s my first trip with Jungkook, Jimin realises and bites his lower lip. He tries to be more patient after, tries to be indifferent, but he sighs relieved when Jungkook finally comes back to pick him up.
+ 
 
-Even on their way through the woods, Jungkook does not explain where they’re headed, but they are getting closer and closer to human territory. He’s about to explode and demand Jungkook tell him where they’re going when he spots three familiar figures between the trees. He stays still for a moment, Jungkook waiting with him silently, and then runs towards them.
+ 
 
-His parents and Hoseok meet him halfway, immediately throwing their arms around him. Jimin is crying by the time he hugs his mother, then his father and lastly Hoseok.
+ 
 
-“Fuck, Jiminie, the things you get yourself into,” Hoseok breathes through his own tears.
+*
 
-Jimin chuckles and hugs his best friend tighter. Taehyung is a great friend to have but the alpha is and always will be Jungkook’s friend first.
+ 
 
-“How?” Jimin asks Jungkook once he’s done hugging his parents and Hoseok. The alpha is standing to the side, letting them have their moment.
+ 
 
-“Head Alpha gave permission because you were working really hard. He has always admired you and your behaviour has shown him you’re a great addition to the pack.”
+ 
 
-“So I can visit my village?”
+Master Namjoon, though previously vocal about his objection to Jimin’s attachment to young Master Jungkook, had seemed to retreat to himself. Jimin would spot him in the halls sometimes, off doing Master Jungkook’s bidding, and the older heir would observe him almost callously, even when Jimin was decorated in bold bruises that had brought him euphoria just moments earlier. Master Namjoon, much like the Master and Mistress, seemed reclusive, or was downright absent from the manor altogether.
 
-The smile drops from Jungkook’s face. That’s all the answer Jimin needs.
+Which was why Jimin panicked one dark night when Master Namjoon showed up in Master Jungkook’s bedchambers, gazing at him with a look that was a far cry from the aloofness he had been sporting for weeks on end. He widened his eyes, glancing between Master Namjoon and the open door, well aware that his Master could return in at any time after finishing up his reading in the study.
 
-“Not now,” Jungkook says apologetically and strokes Jimin’s hair with one hand, “but one day. I promise.”
+“Master?” Jimin asked into the darkness, disturbed by the lack of action or vocalization on Master Namjoon’s part. Jimin sat up in his bed, pulling the sheets around his naked body. He wondered if Master Namjoon could see the stinging boot mark Jimin had received as a parting gift on his ear and jaw from the last time he’d been ordered to lick Master Jungkook’s boots, only to have ‘done it wrong’. A part of him was proud of it, having to hold himself back from reaching up to touch it to make sure it was still there. Even with the presence of a more senior Master of the house, Master Jungkook still distracted him with an unyielding grasp on his mind.
 
-Jimin nods and wipes his tears away. Jungkook keeps his promises.
+“How he treats you...it is not right,” Master Namjoon simply said, seeming cautious about how he meticulously chose his words. It was an odd thing to be saying into the silence of Master Jungkook’s and his bedchambers after having spoken no other words to him for months. Jimin grimaced, leaning back against the wall and pulling his sheets up further. Now he did not want Master Namjoon to see the marks. He would not appreciate them like Jimin did. He would misunderstand. He would cause trouble. “I think you would be better off providing your services elsewhere.”
 
-Jimin’s parents have prepared a picnic and they happily ask Jungkook to join them. Jimin watches silently as he sees the scene play out, sees the trust his parents are showing in Jungkook. It’s something Jimin wished his parents to show in his future partner.
+“I wouldn’t,” Jimin protested loudly, too fast to play it off as a well-thought-out response. He glanced out the window with petrified eyes, thinking of being forced out there, away from his home. It was raining outside. He could not think of anywhere else he belonged; where he was needed. Surely, Master Namjoon could not mean that. He had not spoken to Jimin in months, so this must be an ill-thought accusation. Though he could tell Master Namjoon was not ordering him away directly, merely giving him sound advice. Advice, nonetheless, that he was immeasurably unwilling to take. “I do not think I would,” he corrected himself, trying to stay meek and obedient in the face of unwanted orders, unconsciously holding tight his Master’s bed sheets as if they would root him to the room and keep him there forever.
 
-They eat and laugh and catch up, Jimin’s parents telling Jimin what he missed and telling Jungkook embarrassing stories from his past. It’s nice and cosy, and then Hoseok is pulling him for a walk for some privacy.
+“Jimin,” Master Namjoon tried again, but Jimin would not hear it, for the first time in his short life interrupting a Master’s words.
 
-“So, how’s life in a pack?” Hoseok asks the same question his parents because he wants a less sugar-coated version of it.
+“The young Master needs me,” he blurted out, saying it as if he were trying to convince himself, too. Master Jungkook had never said it, but it was not like he had asked for anyone else. Without Jimin, Master Jungkook would have no friends. No social interactions. Even the girls from France did not come around any longer. His Mother and Father had abandoned him. Master Jungkook was all alone in the world. Nobody understood him like Jimin did. Nobody cared. Not even his own brother. “He just needs some comfort. He’s lonely here.”
 
-“It’s okay,” Jimin says matter of factly. “Almost like life in a village. I have almost all my previous responsibilities other than not being allowed to hunt, and the fact that people randomly shift into wolves.”
+“That’s an order, Jimin,” Master Namjoon pressed, taking a step forward towards him. Jimin whimpered, flinching back. “You’re being made redundant.”
 
-“Must be freaky.”
+Jimin struggled to breathe, tears pooling in his eyes as he looked towards the door behind Master Namjoon. He shook his head slowly, keeping his eyes on that opening, his heart pounding in his chest. He had been born in the estate, and he did not know anything else. That was not a direct order from his true Master. Master Jungkook would never order him away. There were servants to take care of the rest of the estate, but Jimin took care of Master Jungkook. Jimin held him and took him and his wrath with his bare hands. It was the only thing he felt somewhat capable of doing. Forget his cooking, his cleaning, and his useless, unimproving skills. He knew how to serve his Master.
 
-“It is but it’s my life now.”
+Jimin bolted out of bed, uncaring for his modesty, as he cowered away from Namjoon, shaky legs moving him towards the door. His head was throbbing with the adrenaline of going against an order, his cheeks already feeling wet from fear and hopelessness.
 
-“How is having a mate?”
+“Jimin!” He heard bellowed after him, something in his peripheral vision trying to reach for him as he moved. He screamed, side-stepping Namjoon as he sprinted out the door, his bare feet slapping against the floorboards. He ran down the stairs and past all the familiar rooms, not even stopping when his throat and chest burned from exertion and his thighs ached from strain. He ran faster than he had ever before, unable to think or look at himself as he disobeyed an order for the first time in his life.
 
-“It’s only half a bond but it’s… I don’t know. I feel so much since he bit me and everything’s much more intense.”
+However, if Master Namjoon relinquished him of his services, then Jimin was not obliged to follow his commands. There was only one person whose commands he would follow until that very mouth would command him to cease existence.
 
-“Yeah?”
+ 
 
-“And I want to hate him but it’s hard,” Jimin admits quietly.
+ 
 
-“Well, he’s your mate. We don’t really get it, and I do less than even you now, but you know what teacher said, that a bond is a connection of the souls that lets you share in his feelings and life.”
+ 
 
-“Yeah, but I’m human. And it doesn’t feel like I feel his feelings but more like I feel a different part of me every time he’s in the room.”
+*
 
-Hoseok stops and forces Jimin to face him. Jimin prepares for the hard truth.
+ 
 
-“You may be human but this is your life now. You’ve always felt attracted to him and it’s okay to give him a chance.”
+ 
 
-“You don’t know what he did,” Jimin protests.
+ 
 
-“He drugged and forcedly mated you?”
+“Where were you last night?” Master Jungkook growled, a firm hand clasped around the top of his servant’s arm.
 
-Jimin’s defences break down and he stares at Hoseok. “How did you know?”
+Jungkook had found him sitting behind the drinking cabinet in the morning, half hidden by the curtains of the windows. He looked horrible, cheeks clearly tear-stained and semi-naked body pressed flat and red against the side of the cabinet. When he had seen Jungkook walk in, he had cried even more, mumbling something Jungkook could not quite decipher along with Namjoon’s name.
 
-“He told us. Came clean right in the first meeting, and trust me, I was so mad I punched him.”
+Jungkook had seen red then, and dragged a half-naked and bumbling Jimin out of the manor, uncaring about whether or not his feet could keep up. He rolled his eyes at the whimpers behind him, and the desperate, sticky way the boy was holding at his hand and arm, as if scared he would leave him.
 
-“You did?”
+Jungkook dragged him down to the stables where the stable boys, gamekeepers, carpenters, and other men who served the house gathered in the mornings to hedge bets on fighting. He’d seen them some days; heard them. Loud and rowdy—pumped full of testosterone and wild with power and energy that they never got to express when working under him. Jungkook had considered telling on them to his parents, having them all fired or punished for their brutish insolence, but he’d kept the debauchery in the back of his mind, wondering if he could have fun with it one day.
 
-“Yeah, and I’m still alive and so are you, and hell if I’m not glad about that. The price for it was high but you shouldn’t make your life harder than it already is.”
+And today was that day. His servant had been vile—clearly walking around without clothes on and making up excuses as to what had happened to him. None of them were correct, because Jungkook had taken Jimin’s shirts and thrown them around the estate to get him into trouble since he had run away from his room last night. And now he was angry that everyone was looking at his servant shirtless, even if it was his own fault. And the short, pitiful name of his brother on the servant’s lips rang in his mind vividly yet, occupying almost every space as he resented Jimin’s voice forming those sounds. Still, he needed to sate his anger. Needed to tell his servant that he could not just prance around like that, or leave him without notice. Because there were people in this world—lowly, brutish, angry people—who wouldn’t hesitate to tear him apart. Who wouldn’t care for his needs.
 
-Jimin lets the words settle and puts them in a safe drawer for now. “I’ll try,” he tells Hoseok.
+When Jungkook reached the heavy stable door he saw Jimin stiffen up in fear, resisting his pulling movements for the first time that day. They both listened to the noise, saw the sliver of orange light spill out from inside. He positioned Jimin’s head at the sliver opening. Inside, over a dozen men were shouting, pushing each other, and waving money around. Blood and sweat, violence and suspense.
 
-They wander for a bit more but soon have to make their way back. Jimin bids goodbye to everyone, sad but hopeful as he follows Jungkook.
+“You want them to see you like this?” Jungkook asked automatically, his hands thrumming with power as Jimin gasped, looking up at him with glassy, bewildered eyes, not yet grasping the gravity of the situation Jungkook was trying to create. The humiliation. The violence he was hoping for. “Look at them working so hard in there. Don’t you think they deserve a little whore for company?”
 
-“Thank you,” he says after a while. “That means a lot.”
+He felt Jimin reach up for his arm, gripping at his shirt sleeve. Jungkook licked his lips.
 
-“You’re welcome.”
+“Do not leave me, please,” he heard the servant plead, beginning to cry as Jungkook shoved his head closer to the door. It would be easy to open it. He thought about how they would react at the sight meager, tiny, shamed Jimin shoved their way, unable to leave because Jungkook would hold the door shut. How Jimin would be so scared he would cry, maybe wet his pants, finding himself at the bottom of the hierarchy even at servitude level in the middle of heightened violence and anger and a freight of masculine bodies, humiliated.
 
-“How come I’ve never met your parents? Not worth bringing me home?” Jimin jokes. He’s in a good mood. Sue him.
+“You do not wish to join your friends?” Jungkook asked, playing pitying and confused as if he did not know servants and manual workers were carved from an entirely different crop.
 
-“They’re dead.”
+“Th-They are not my friends,” Jimin pleaded through panicked gasps, holding onto Jungkook’s shirt so hard it was wrinkling. Jungkook frowned, wanting the boy off himself.
 
-Jimin’s smile vanishes and he grabs Jungkook’s small finger with his hand. Jungkook stares at him wide-eyed, taken off guard by the sudden touch.
+He yanked his shirt out of the tiny hand, kicking Jimin closer to the door. Jimin looked back at him, horrified. He watched Jungkook’s hand reach for the handle.
 
-“I’m sorry.”
+“I think your friends will be happy to see you.”
 
-Jungkook huffs and holds Jimin’s hand, dragging him along as he starts walking again. “It was a long time ago. My omega mom died from a bad case of pneumonia and my alpha mom died in the war five years ago.”
+Without waiting for Jimin to react, Jungkook yanked the door open to kick the boy in, hearing himself yell shrill reprimands about punishment and obedience and needing to learn to appreciate living inside the estate and not sleeping in the barn with the other lowlifes. A swarm of noises passed by him in a few seconds, cascading down his ears and ringing in them until he had the door slammed shut in Jimin’s back, holding it in an iron grip.
 
-“Jungkook, I’m so sorry,” Jimin apologises again and squeezes his hand.
+It was quiet on the inside for a second, an odd change of tone from the rowdiness before. Jungkook straightened out his shirt while clamping the door shut with his boot and right elbow, feeling his upper lip and armpits sweat in a sickly exhilarated suspense.
 
-“What are you apologising for? I’ve made my peace with it somewhat but I never want to lose anyone I care about every again.”
+Then, laughing came rumbling from the inside. High on adrenaline and his own fortitude, Jungkook heard thrumming in his head, alongside the beating of his heart, hammering rhythmically in a vicious accompaniment to the high-pitched yelling that followed, which he distinctly recognized as his servant’s voice. The laughing morphed with shrill, panicked screams, along with low voices of complaint, confusion and stir. There was banging on the surface of the door he was holding fast, which Jungkook dissipated easily.
 
-Call him delusional, but Jimin feels like the words are meant for him, a sort of explanation why he did what he did that night.
+“Please, please, please—Master, I’m sorry,” he heard Jimin’s babe-like protests pressed against the door, rustling and more laughter.
 
-While Jimin accepts Jungkook’s explanation, one part of his sentence won’t leave him alone.
+Jungkook smiled, to himself, imagining in his head the tears running down his servant’s cheeks. He just wanted his toy pressed on a little bit. A little roughed up; spooked even. Tasting a little taste of Hell enough to settle for his purgatory, the humiliation of his state carved into his bones.
 
-“I want to apologise,” Jimin blurts out two days after meeting his family over lunch. They’re at home this time, probably because Jungkook noticed that Jimin is on edge.
+He sighed, straightening up, then proceeded to yank the door back open. Surprisingly, Jimin had managed to stay clawing at the door, this time falling into Jungkook’s legs with two men having grabbed his arms while laughing at him. Jungkook looked down Jimin’s body at them, their faces now wide and pale with fear and realization.
+Jimin looked up at him teary-eyed, arms trembling and scrambling for purchase on the legs of his trousers. He placed his wet face cloyingly begging onto his leg, wrapping his tiny arms around Jungkook’s thighs. The men near Jimin jerked back, as if touched by fire, eyes horrified as they looked up into Jungkook’s apathetic ones.
 
-Jungkook looks at Jimin and waits patiently for him to elaborate.
+“P-Please, save me, please,” he heard Jimin mumble into his thigh, quivering into him as he pleaded for his life.
 
-“I want to apologise to the family of the wolf I killed. I want to make my peace with it and give his family a chance to do so too.”
+Jungkook let Jimin press his face into the fabric of his trousers to hide himself, whining fearfully. Jungkook was surprised by how much he enjoyed it. He was clearly the boy’s saviour and stable presence after experiencing the true wild nature of men unkempt. The two brute-ish looking, bigger men were still crouched on the floor next to Jimin’s, hands extended to touch the small of Jimin’s back as they’d seemed to previously enjoyed how he flinched. Jungkook glanced down at his servant’s wet face, suddenly not feeling so generous or charitable anymore. Not feeling so calm.
 
-Jimin had been plagued by another nightmare that night, so bad he had woken Jungkook and the wolf had held him as he cried.
+“Do not put your hands near me, filth,” Jungkook growled, seeing the men gradually sobering up and regaining motion once realizing whose presence they were in. They widened their eyes, further taking in Jungkook’s crisp shirt and polished, heavy boots. They attempted to retreat back slowly, suddenly acres away from their prior demeanor.
 
-Jungkook nods. “I’ll talk to them, arrange something so they’re prepared.”
+Jungkook did not give them the chance, lifting his leg up and stomping it down onto one of the men’s heads, effectively knocking him out cold. The other yelped, and Jimin whimpered at the commotion, eyes still closed and face still smushed into his thigh. The men standing around like hens looking on looked away, indicating they did not want any further trouble.
 
-And that’s what he does. Not even a twenty-four hours later Jimin is sitting in the living room of the aggrieved family, Jungkook at his side. The alpha wouldn’t let him do this alone. It was his one condition. The female alpha who had asked Jungkook for a duel is present too, not as angry as before but it’s still there.
+Jungkook took the opportunity of blanketed fear to lean down and kneel next to Jimin’s head, cupping his ears in his hands. He offered up to him an uncharacteristically tender voice.
 
-“I know, I have no right to be here,” Jimin begins shakily, looks at the female wolf and at the parents, “and nothing I say will bring back your son but I couldn’t let this be done with the duel. I… regret being careless that day and that my carelessness took someone precious from you. I shouldn’t have been so stubborn. I’m truly sorry for killing your son.”
+“This is where you would be without me.” He sank his left hand into the back of Jimin’s hair, resting it steady there, cradling his head, then continued. “I clothe you, give you the shelter of my own home, and let you roam around freely. Do I ask for much in return?”
 
-“We don’t blame you,” the father speaks up. “It was a mistake and many of us have made mistakes because of stupid actions.”
+Jimin shook his head, bowing it so low Jungkook almost had to fight to hold it up to make his point.
 
-“I can’t say we’ll become great neighbours,” the other says, wiping he tears and sniffling, “but you have nothing to fear from us. I sued to blame you but like my husband said, it was just a mistake. He would’ve forgiven you too.”
+“And you would not ever forsake my kindness, would you?” He asked, stroking the boy’s sweaty hair. Jimin looked up at him sincerely, tear-stained, red in the face and all, eyes so clear and eager even in the face of danger, looking only for his Master, for Jungkook, to reach him.
 
-Jimin tried to keep the tears in but that breaks the dam. Jungkook leans over to hold his hand.
+“No, Master.”
 
-The female alpha speaks up next, and Jimin mentally prepares himself to hear accusations and get insulted but that’s not what happens. “You’re right,” she says. “It was a stupid mistake and that’s what’s so infuriating. I wanted to hate and blame you for my brother’s death because it needed to make sense somehow, but I couldn’t. Because you’re not to blame.”
+ 
 
-Jimin nods, more tears streaming down his face. He doesn’t stay much after that, apologises again, and lets Jungkook lead him back to their cabin. Jungkook stays with him for the rest of the day and holds him when they go to bed. Jimin falls asleep in his arms.
+ 
 
-
+ 
 
-Jungkook grows more affectionate, touching Jimin lightly whenever he finds the opportunity but never too much or inappropriately. Once he even gives Jimin a pretty bracelet, trying to look nonchalant when doing so. And he smiles more. A lot more. And just like that, Jimin’s days are filled with more light than he could’ve imagined.
+*
 
-They find a certain comfortableness where Jimin doesn’t mind being with Jungkook anymore. He laughs with Jungkook without holding back, talks to him, and even teases him. That is until a certain morning when Jimin wakes up in Jungkook’s arms, back firmly pressed to the alpha’s chest and firmly trapped in his hold.
+ 
 
-Jimin lets himself slowly wake up but when he tries to remove the alpha’s arms carefully, Jungkook refuses to budge. Jimin puts effort into removing Jungkook’s arms but he only makes a protesting sound and presses Jimin closer to himself. Jimin gasps and gives in to the voice telling him to remain in their mate’s arms but only for a second. Jimin becomes painfully aware of the alpha’s half-naked state, and how it’s no help for the growing problem in his pants.
+ 
 
-“Jungkook,” Jimin breathes, can’t manage anything more than that.
+ 
 
-Jungkook hums and buries his nose deeper into back of his neck, lips brushing the sensitive skin momentarily. If it were possible, Jungkook’s hold on him tightens even more, pinning him to the bed. Jimin doesn’t know if he imagines it but Jungkook’s scent seems to grow heavier, more potent, and it addles Jimin’s mind.
+Though Namjoon had tried many times, and in different ways, to change the fate of the situation in the manor—of what he had seen and felt unfolding with its fibrous, tendrillar arms into every nook and cranny of the walls, spoiling every surface with the inkly, clotty, dark staining reach of destruction—in the end, he’d been powerless to change the course of the tide.
 
-Jimin hiccups and forgets how to breathe when Jungkook presses a kiss to the back of his neck, leaving one kiss after another. Jungkook seems unaware of it, still fast asleep as he leaves another kiss. When he attempts to slip out of his arms again, the alpha growls warningly, teeth sinking into the skin of his neck. The sound goes straight into Jimin’s gut, making his cock twitch. The bite stirs something primal in Jimin and he moans loudly.
+Now mostly confined to his study and his bedchambers, Namjoon rarely ventured out, greeting his parents monotonously once in a while as he passed them in the halls, their heads screwed on the wrong way around as they were unable to perceive the monstrous, horrid shift in the air. The shift which always emanated most prominently from his little brother’s room. Namjoon would pass it every once in a while, wondering ever so fleetingly what went on inside. Remembering Jimin, as he had seen him last, flush with devotion and hair tucked neatly behind his ear. He wondered if he still burned hot for the same cause, spun so tightly around Jungkook’s little finger he could not let go.
 
-His hand flies to his mouth to silence the sound but it’s too late. It’s already and it makes Jungkook stir from his sleep.
+The answer came to him one night when his spineless, hollowed, shell of a self dared to look for them around the manor after he surmised that he had not seen nor heard from his little brother or his little servant for weeks. And he would regret looking for them for the rest of his life, as his eyes would drink in the scene in their father’s study, that he’d stood and watched for hours, unable to tear himself away.
 
-“Jimin?” he sleepily mumbles, loosening his hold on the man.
+The armchair their father always used to sit on stood firm in the center of the room, angled slightly away from the door so that Namjoon could not see Jungkook’s face, though he could see his telltale tall body sitting in it, legs extended and bent sturdy into the floorboard beneath him as he slouched in the chair. He was holding a book of poetry that Namjoon did not recognize, waving it about lazily, making Namjoon unsure of whether or not he was actually reading it. As Namjoon moved his gaze down, past the black of Jungkook’s pants and the flickering embers in the fireplace that rattled into the silence, he spotted the unmistakable, glaring sight of Jimin, naked and pressed as close to the floor as he could, clutching at Jungkook’s left foot.
 
-Jimin bolts, not waiting for Jungkook to wake up and ask him about anything that happened. He locks himself in the bathroom, panting and cock achingly hard. Jungkook doesn’t come after him, by now knowing when Jimin needs his distance.
+And they stayed like that, no matter how many pages in the book Jungkook turned or how long Namjoon had wondered whether the servant’s back or knees hurt. Namjoon stood outside, transfixed, powerless, and feeling absolutely spayed. Jungkook did not at all have to look at him from his victorious position, calm and serene, in the largest chair they owned in the entire estate, reading or choosing not to read pretentious poetry from their vast, expensive collection, to tell Namjoon what he already now knew.
 
-Jimin takes a couple of minutes to calm down, and it’s after he has, does he notice something weird. He puts his hand inside his pants, fingers reaching between his cheeks. When he pulls them back out again, they’re wet.
-
-The peaceful, though laden, co-existence Jimin had built with Jungkook shatters that morning.
-
-
-
-“Why are you doing this?” Taehyung asks him after the third consecutive day Jimin has been avoiding Jungkook.
-
-They’ve been taking a break from repairing the roof of one of the cabin’s when Jimin’s eyes glued themselves to Jungkook who is chopping wood. Is shirtless while chopping wood. While so many other wolves are staring at him. Most of them omegas.
-
-“What?” Jimin asks and turns to Taehyung. He knows what Taehyung is talking about but he won’t admit to it that easily.
-
-Taehyung gives him a deadpan look, not believing his act for a second. “Why are you making Jungkook and yourself miserable by resisting him? You obviously have the hots for him.”
-
-“Do not!” Jimin protests, jaw falling open and eyebrows.
-
-It’s not like Jimin wants to avoid Jungkook but it’s all a bit too much for him. First he accidentally kills someone, then he gets forcedly mated, then he’s all confused about everything and now his body is acting up.
-
-“Yeah, right. Lets say you don’t, you still can’t allow yourself to stay away from him. You’re mated to him. You’re carrying his bite. You crave him, and don’t say you don’t,” Taehyung adds hastily when Jimin opens his mouth to refuse. “I’m a wolf. I know more about mating bites than you ever could in that human village of yours, and I have personal experience. Staying away from him will bite you in the ass.”
-
-Jimin doesn’t crave Jungkook. He’s interested in the alpha, yes, but he does not crave him.
-
-“I’m a human,” Jimin says after a long silence.
-
-Taehyung rolls his eyes and gets to his feet. “A mating bite is strong. I believe in the power of it. And humans are descendants of wolves too. You’d be smart to remember that.”
-
-“I’ve had enough wolf lessons from you,” Jimin says and walks past him, and it’s true. Taehyung had been teaching Jimin more and more about wolves, about mating, and everything else that is involved, stuff like scenting.
-
-They don’t talk for the remainder of their work, Jungkook also having stopped chopping wood and gone to somewhere else. Jimin’s annoyance is mostly gone when they say goodbye but he’s still a bit peeved. He only finds out the real reason after he goes back to his cabin – now able to go through the pack by himself – and finds Jungkook working outside. Still very much shirtless.
-
-Jimin doesn’t know what comes over him. He stomps inside, ignoring Jungkook’s puzzled look, and fills up a jug with cold water, marching outside again. Jungkook looks up from his work when Jimin stands next to him, and then Jimin is already emptying the whole jug over Jungkook’s head.
-
-Jungkook gasps and jumps to his feet, staring at Jimin with wide eyes and an open mouth. “What the hell?” he exclaims, water dripping his hair, droplets cascading down his toned abs, almost caressing it.
-
-Jimin hates how good Jungkook still looks and even more so when Jungkook pushes his hair back with one hand, creating art in the form of slicked back hair. He groans annoyed and stomps back inside.
-
-Jungkook follows suit, looking confused and a bit concerned, and corners Jimin in the kitchen.
-
-“Are you going to tell me what that was about?”
-
-“About nothing,” Jimin hisses defensively and attempts to walk past Jungkook, and is disappointed when Jungkook grabs him by the waist and traps his against the counter. Jungkook has always let Jimin escape so Jimin can’t believe he won’t let the same happen again. He can’t deny that he’s excited too.
-
-It’s been so long since he last touched Jungkook, since he last talked to him properly, and he does miss and yearn for it.
-
-“The truth,” Jungkook demands, voice authoritative. He sounds like the alpha he is.
-
-Jimin’s eyes rake over Jungkook’s body, the tan he got from the working in the sun and his abs. Jimin has spent a whole night doing all sorts of things with Jungkook in bed but he was frantic with need back then and didn’t have the time to appreciate Jungkook. But now, because Jungkook won’t stop walking around shirtlessly, anyone can gawk at him however they please. The thought makes something hot coil in his gut.
-
-“Do you always walk around half-naked?” Jimin hisses before he can stop himself.
-
-“Only when it’s hot outside and I’m working,” Jungkook explains, eyebrows furrowed.
-
-“Oh, and not because of all the attention you get?”
-
-Jimin regrets asking as soon as the words are out. His hope that Jungkook won’t catch on is in vain, his confusion replaced by a smug smirk as his face lights up.
-
-“You’re jealous.” He says it like a fact and not like a question.
-
-“No, I’m not,” Jimin protests and fights against Jungkook’s hold.
-
-Jungkook tightens his hold on Jimin, pressing the man closer to himself. “Good boys don’t lie.”
-
-Jimin squeaks, embarrassment already colouring his cheeks red. He presses his hands against Jungkook’s chest to push him away but he feels the heat of Jungkook, feels the hardness of his muscle, and decides against it. His hands slide down Jungkook’s torso, feelings the bumps and dips of his abs. Remembering how omegas had been staring at Jungkook just an hour ago, Jimin digs his nails into his stomach.
-
-Jungkook hisses but doesn’t stop Jimin, lets him do as he pleases. Jimin removes his nails bloody and watches the tiny wounds heal slowly. He looks up at Jungkook and hums when the alpha presses his lips against Jimin’s. He wraps his arms around Jungkook’s shoulders, stands on his tiptoes and kisses Jungkook with fervour. He’s done denying himself the one thing he truly wants: Jungkook. So he opens his mouth, welcoming Jungkook’s tongue to explore and claim.
-
-Jimin realises something else in that moment: Jungkook wants him. Desperately. Ravenously. This time is different though. This time, Jungkook isn’t taking him, Jimin is giving himself over.
-
-Jungkook litters kisses from Jimin’s chin down to his neck, nipping and licking. Jimin feels Jungkook’s scent wash over him, a deep yearning inside Jimin getting sated with each nuzzle against Jimin’s scent gland. He moans and presses Jungkook closer, urging him to keep on scenting, marking and claiming him.
-
-Jungkook grabs the hem of Jimin’s shirt and pulls it over his head while Jimin grabs Jungkook by his pants and leads Jungkook to the bedroom. He pushes Jungkook down onto the bed, hurriedly unbuttoning his pants. Jungkook helps him take them off and discards them carelessly.
-
-Jimin watches Jungkook for a moment, carefully observing and admiring how his hard cock curls against his stomach, the head an angry red. Jimin has only sucked someone off twice in his life and isn’t great at it but he knows he’ll regret it if he doesn’t feel Jungkook’s weight against his tongue. Wrapping a hand around the base, Jimin wets his lips with his tongue and leans down to suckle on the tip. Jungkook hisses and Jimin takes that as a good sign, taking more of him into his mouth.
-
-Jimin bops his head, moves his hand in sync with his mouth and sucks on the tip when he’s pulling back. He keeps going, until Jungkook starts cursing and his breathing gets heavier.
-
-“W-wait,” Jungkook stutters and Jimin knows he’s close.
-
-He doesn’t want to stop though. He wants to make his alpha come. So he keeps on going, sucking harder despite the ache in his jaw, until Jungkook is spurting hot spurts of come into his mouth. Jimin tries to swallow it all, doesn’t know what comes over him, but he doesn’t want to waste a single drop of Jungkook’s come. Some of it does escape and drips down Jungkook’s cock, so Jimin dutifully starts lapping it up as Jungkook comes down from his high.
-
-“Fuck,” Jungkook curses and pulls Jimin away from his cock and on top of him, holding his jaw firmly in place as he kisses Jimin messily.
-
-Jimin moans into mouth and asks through the kiss, “Was I good?”
-
-“You were perfect.”
-
-Jimin preens, satisfaction making him all tingly. Jungkook flips them over, making Jimin giggle at seeing the alpha’s eagerness, and removes Jimin’s pants in one swift movement. He plants himself between Jimin’s legs and strokes his thighs up and down.
-
-“My little omega deserves a reward, don’t you think?” Jungkook asks.
-
-Jimin moans, nodding repeatedly. “Yes, alpha.”
-
-Something flashes in Jungkook’s eyes, something primal and carnal, and he leans down to devour Jimin’s lips once more, circling Jimin’s hole with one finger. Jimin moans and moves his hips in attempt to get the finger inside him. Jungkook smiles at his antics and slowly slips it inside. Jimin throws his head back, giving Jungkook access to mark his throat again. One finger is replaced by two soon, and those by three and it doesn’t take long for Jimin to get impatient again despite the stretch he’s feeling.
-
-“Slow,” Jungkook whispers. “Shouldn’t you have learned from last time.”
-
-Jimin pants and begs, “Please, alpha. Ne- ngh… need you.”
-
-Jungkook sets his jaw but he remains firm in his decision, slipping four fingers into Jimin. Jimin whines but patiently holds out until Jungkook is satisfied with stretching him. He remembers what happened last time, and this time he’s in no mood to get his orgasm denied. His patience bears fruit when Jungkook finally pulls his fingers out, Jimin’s gaping hole twitching and closing around air, and lines himself up at Jimin’s hole.
-
-Jungkook pushes in in one swift move, Jimin biting his lip through the stretch and pain. Jungkook gives him a moment to adjust but then he’s moving his hips already, seemingly as impatient as Jimin.
-
-Jimin feels the slow drag of Jungkook’s cock against his walls and relishes the feeling, wanting to hold on to it forever. This time is far better than last time already. Jimin is no longer out of it from the effects of an aphrodisiac and he can fully enjoy every single second of it. He listens to Jungkook moan and grunt with each thrust, and holds onto his shoulders.
-
-“Faster, alpha,” Jimin pants, hiccupping every time Jungkook pounds into him.
-
-“My little omega is quite the cock slut, isn’t he?”
-
-Jimin whimpers, embarrassment sending pleasant tingles all over his body.
-
-“Y-your cock slut.”
-
-Jungkook growls and changes the angle of Jimin’s hip slightly to pound into him more easily. Jimin mewls every time Jungkook’s head brushes against his prostate, stimulating the sensitive spot. Tightening his arms around Jungkook, Jimin buries his face in Jungkook’s neck, his canines itching. He searches for the spot that smells the sweetest, grazing it with his teeth. Jungkook keeps thrusting into Jimin until he feels a small resistance, stretching Jimin’s hole even further.
-
-“Gonna knot and breed you,” Jungkook growls, hips pushing harder into Jimin, trying to fit his swelling base inside his omega.
-
-Jimin moans loudly, getting closer to his climax, and urges Jungkook on to keep his promise. “Alpha, please breed me. Want your pups.”
-
-It’s like Jimin isn’t even speaking, someone else inside him speaking for him. Jimin gasps when Jungkook almost fully pushes in, knowing that with the next thrust the time is right. Jungkook makes one last attempt to fit his knot inside, succeeding this time. Jimin screams, his orgasm washing over him and making him see black post. He closes his eyes, smells that sweet spot again and bites down until he’s drawing blood.
-
-Jungkook growls, spurting more and more cum into Jimin as he rides out his orgasm. Jimin releases Jungkook’s shoulder, mouth full of blood, and sags against the bed. Jungkook has enough energy to flip them over so Jimin is on top of him, his knot pulling at Jimin’s abused rim, and falls limply on the bed, cock still twitching inside Jimin. Jimin didn’t even know someone could have this much cum.
-
-Their breathing evens out slowly, their rationality returning with it.
-
-“Fuck,” Jungkook curses.
-
-“Fuck,” Jimin agrees.
-
-
-
-It’s been three days now that Jimin bit Jungkook and completed the mating; three days in which Jungkook and Jimin never left the cabin and kept having sex. Neither of them thought about what they were doing back then but it’s hard not to do so anymore when they’re both sitting in the infirmary, a grumbly Yoongi inspecting them both, whereas another wolf stands by the side, watching. Jimin looks at Jungkook, the alpha smiling when he turns his head in sync, and smiles back.
-
-Jimin doesn’t regret what happened.
-
-“Can we finally know what is going on?” Jungkook asks once Yoongi steps back.
-
-Namjoon, the other wolf who turned out to be the friend Jungkook mentioned in the past and was on a trip, takes Yoongi’s place.
-
-“History,” Namjoon answers. “I hope you two used protection.”
-
-Jimin goes beet red. Jungkook remains unaffected.
-
-“He’s human, Namjoon,” Jungkook reminds the wolf. The fact that they didn't use protection is implied.
-
-“Not anymore.”
-
-Jimin stills, interested. Jungkook looks confused.
-
-“What do you mean?”
-
-“During my trip, I met many different packs and wolves. Some stricter than ours, completely cutting off all humans, and others not caring at all while living with them together. In one of those packs I learned that humans never stop being wolves. The difference between a human and a wolf is not the complete lack of the human’s second nature which makes them a wolf. It’s that their second nature is dormant.”
-
-Jimin lets that information sink in and tries to process it. It does make sense. Jimin has been feeling like he isn’t alone in his body anymore, has been feeling too much, felt this primal attraction towards Jungkook and leaked slick. That his second nature woke up and made itself known, makes sense.
-
-“What does that mean? How does that even happen?”
-
-“There are multiple ways of doing it, and it isn’t always a success, but one of them is the mating bite, and the one you gave Jimin awakened his omega,” Namjoon explains.
-
-Jungkook stares at Jimin, mouth wide open. “It makes sense, considering your physical changes but what? So he’s a full wolf? Can he shift?”
-
-“That might be a bit tricky but some have mastered it.”
-
-“Does that mean I’m pregnant?” Jimin asks, can’t shake that feeling of pride that mostly comes from his omega. They can get pregnant. They can give their alpha pups.
-
-Damn, this omega is too focused on pleasing Jungkook.
-
-“We can’t tell,” Yoongi says. “It hasn’t been that long. Damn, you two are work.”
-
-Jungkook gets up from his chair and hugs Jimin tightly. Now that Jimin is aware of what is happening to him, he can pick up on Jungkook’s feelings through his scent and their bond, exactly the way Taehyung described. The terror that had been taking a hold of Jimin after finding out about his possible pregnancy slowly dwindles away as he concentrates on Jungkook’s happiness and pride.
-
-“It’s going to be fine, I promise,” Jungkook whispers.
-
-Jimin smiles, burrowing himself deeper into Jungkook’s arms. It’s going to be fine. Jungkook keeps his promises.
+There was a new Head of House.
